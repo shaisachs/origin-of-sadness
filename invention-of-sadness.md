@@ -2,15 +2,27 @@
 
 "Papa," Sophie asked, "why am I sad?"
 
-Henry Creek's hands went on scrubbing the pan for a moment. At length he paused, and looked back over his shoulder at the eight year old at the kitchen table. In her hands was a line drawing of a bunny in a grassy field, its ears half-colored with a brown crayon. A jazz quartet played on the radio by the sink, the trumpet blaring an improvised salute. "Why, Poppet - it must be because Mama isn't home. You needn't worry - she'll be home next Friday."
+Henry Creek's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Sophie was born. From the jazz quartet on the radio, the trumpet blared an improvised complaint, and the bluebird seemed to turn its head in thoughtful consideration, and then flew off.
 
-Sophie finished coloring one ear, and picked a beige crayon for the other ear. Her eyes flicked over to her father for a moment. "I'm not worried, I know Mama will come home. And I know she's gone - she's been gone almost the whole day now. But why should that make me sad, right at this moment?"
+"Why, Poppet - it must be because Mama isn't home. You needn't worry - she'll be home next Friday."
 
-Sylvia Creek had left that morning, her father setting the carry-on luggage upright on the curb at the airport. Her mother had left the briefest of pecks on Henry's cheek before the traditional goodbye salute to her daughter, who had stayed in the car reading her favorite book.
+Sophie did not bother looking up from her coloring. In her hands, a line drawing of a bunny eating a carrot lay on the kitchen table, a pile of crayons strewn in every direction. Her left hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's right ear.
 
-The bunny ears were nearly complete, the sky had been shaded in a cheerful robin's-egg blue all through lunch, and the sun shone over the entire scene as a dab of buttercup yellow. Sophie did not, in the final analysis, seem particularly sad. Henry went back to cleaning up the lunch dishes, scrubbing away at a burnt spot on the bottom of the pan. "Well, you wish that you could play with Mama, I suppose. Or perhaps you simply can't stand the lunch I made you."
+"Of course Mama isn't home, but she's been gone for hours now. And I'm not worried - every time she leaves she returns. But why am I sad just this moment, Papa? I wasn't sad before."
 
-Sophie set down her crayon, picked up the paper, and considered it for a moment. She walked over to the refrigerator and attached it with a promotional magnet from Henry's real estate attorney. "Of course that's not it, Papa," she said, scooping up the crayons on the table and sweeping away the shavings. "Mama can't make pasta anywhere near as well as you can. And why would that make me sad, anyway? Don't worry, we have all day. You'll figure it out."
+"Before what?" He had resumed working on the pan. A bit of cheese had been burnt in place on the bottom, and wouldn't scrape off even though it had sat soaking throughout lunch.
+
+Sophie set down the crayon and carefully considered her drawing. She blew softly on the paper, scattering the crayon shavings, before picking up the forest green to finish one empty spot at the top of the carrot. "Before you turned on the radio, I suppose. Why should that make me sad?"
+
+Saturdays alone with Sophie were a delight he had not anticipated. When Sylvie had first announced her rigorous travel schedule, one week a month over the course of an entire year, it had seemed that these weekends would stretch on forever, the need to chase after Sophie and keep her entertained all day. But after a few months he found that they passed almost too quickly, that Sophie's nonstop chatter kept him endlessly fascinated, even if she never seemed to pick up her toys. With Sylvie's travel schedule winding down, this weekend would be their last alone, certainly for a long while, and presently it would be his wife answering these marvelous questions.
+
+"Are you saying that the song made you sad, is that it?"
+
+Sophie regarded him for a moment, a look of genuine concern. "Of course, that is exactly what I'm saying."
+
+"Why then, it's a sad song. And it reminds you that Mama is gone. And that makes you sad." He put the pan away and turned towards her, leaning on the countertap and wiping his hands with a towel. He knew, somehow, that this answer would not satisfy her.
+
+"Papa, what a perfectly silly thing to say." Sophie brushed her hand against the paper, in the process rubbing the few remaining bits of waxy crayon into smudges on the drawing, and then fixed her drawing to the refrigerator. "It's a sad song, of course it makes me sad. But why is it a sad song? It's just some instruments on the radio, a few sounds. How does that have anything to do with Mama? No one on the radio knows that she's gone, or even who she is. Why should that make me sad?"
 
 ***
 
