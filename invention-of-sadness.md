@@ -8,7 +8,7 @@ Henry Creek's hands went on scrubbing the pan for a moment. Outside the kitchen 
 
 Sophie did not bother looking up from her coloring. In her hands, a line drawing of a bunny eating a carrot lay on the kitchen table, a pile of crayons strewn in every direction. Her left hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's right ear.
 
-"Of course Mama isn't home, but she's been gone for hours now. And I'm not worried - every time she leaves she returns. But why am I sad just this moment, Papa? I wasn't sad before."
+"I know Mama isn't home. She's been gone for hours now. And I'm not worried - every time she leaves she returns. But why am I sad just this moment, Papa? I wasn't sad before."
 
 "Before what?" He had resumed working on the pan. A bit of cheese had been burnt in place on the bottom, and wouldn't scrape off even though it had sat soaking throughout lunch.
 
@@ -26,3 +26,18 @@ Sophie regarded him for a moment, a look of genuine concern. "Of course, that is
 
 ***
 
+The ground was still a little damp from rain earlier in the week, and so the soil yielded easily to the spade. Henry turned the dirt over, created a little mound, and pressed his thumb into the top.
+
+"I'm ready for another seed, Poppet."
+
+Sophie dug around in the little foil pouch, brightly painted with a pair of zucchini, and carefully pinched a single, tiny seed between thumb and forefinger, then dropped it into her father's waiting hand.
+
+"Have you figured it out yet, Papa?"
+
+He turned the question over in his head as he placed the seed into the little depression in the soil, heaped a little bit more dirt onto the top, and patted the completed mound flat.
+
+"Have I figured out why that song was sad? No, I'm afraid I haven't."
+
+"Well - maybe you should turn it into a story. Like Mama says."
+
+Sylvie loved to say things like that: There's no question that can't be answered by a good story.
