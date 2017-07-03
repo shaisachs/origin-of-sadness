@@ -36,8 +36,61 @@ Sophie dug around in the little foil pouch, brightly painted with a pair of zucc
 
 He turned the question over in his head as he placed the seed into the little depression in the soil, heaped a little bit more dirt onto the top, and patted the completed mound flat.
 
-"Have I figured out why that song was sad? No, I'm afraid I haven't."
+"Have I figured out why that song made you sad? No, I'm afraid I haven't."
 
 "Well - maybe you should turn it into a story. Like Mama says."
 
-Sylvie loved to say things like that: There's no question that can't be answered by a good story.
+Sylvie loved to say things like that: There's no question that can't be answered by a good story. It was her favorite game with Sophie, to make up silly stories all day long, whether it was about someone feeding ducks at the park or the nice man at the post office. Easy enough for Sylvie to do, Henry thought - telling stories was what she did best.
+
+"Well then, I'll do my best." Henry set his spade down on the ground, and sat back on his haunches. How did every good story begin? "Once upon a time, there was a king in a castle, who ruled over a vast kingdom..."
+
+"No, Papa, you're telling it wrong!" Sophie stamped her foot into the edge of the garden, and it was only at that moment that Henry realized she had worn her new sneakers for the afternoon's chore. They were brand new, purchased just yesterday since Sophie had worn out her old pair. The sneakers were a gleaming color of white - or in any case, they had been yesterday - with a streak of purple on both sides and heels made of plastic with shiny red lights that turned on whenever Sophie took a step. "The story goes like this:"
+
+She paused for a moment, looking down at her feet and then up into the billowy clouds above as though she had forgotten where she might have left something.
+
+"Once upon a time, there was a little girl named... Stephie. And Stephie had a song. Her song's name was Yo."
+
+"Yo?" Henry asked, He had started to pick up all the weeds they had tossed aside as they had prepared the zucchini patch. "Like the toy - a yo-yo?"
+
+"No, not like that. Yo because it was short for yodel. Now, Stephie took Yo with her wherever she went. To the playground, to her friend's house, on picnics, into the bath... she even took Yo to school! And everywhere they went, she and Yo liked to sing together. When she was at school, Stephie and Yo would hum together while she read or did her homework."
+
+"Well, that is a marvelous story. Was Yo a sad song, then?" Henry gathered all the little rocks they had unearthed into a little pile, and left it by the side of the garden.
+
+"No! There's more to the story, you should know that! We haven't even reached the middle yet!" Sophie's face was drawn into a deep scowl, and without realizing it she had balled the packet of seeds into a fist.
+
+"Very well, then, Poppet. Let's pick up the gardening things, and continue the story after we put them away. Ok?"
+
+***
+
+Mulberry bushes always seem to ripen in stages. The berries closest to the ground grow fat and blue, while those which are just a little higher stay skinny and red. Meanwhile, the berries high up at the top of the bush remain shriveled and green until late in the season.
+
+At this time of year, it was only the berries at the very bottom of the bush which had ripened, so Henry sat on the ground, and Sophie kneeled on her knees, with a couple of glass jars scattered between them. Henry had filled up a whole jar before he remembered Sophie's story.
+
+"Now then, where were we? Stephie was humming with Yo in school. Do you suppose she got in trouble for distracting her classmates?"
+
+"Oh no, Papa, that would never happen, because Yo had a lovely voice. Why should anyone be cross to hear such a wonderful song?"
+
+"Why indeed, Poppet? I don't know."
+
+"You see, what had happened was that one day, while Stephie worked on her multiplication tables, she found that she could not quite remember the words to her song."
+
+"How terrible! Was she forgetting Yo?" Henry wiped his hands on the grass to remove the sticky purple juice of the berries, and then screwed a lid onto the jar.
+
+"Yes, I believe that's exactly what was happening. Just a little bit, mind you. She could still remember most of the words. But Stephie was frightened that one day she would forget them all."
+
+"I should think so. So what did Stephie do?"
+
+Sophie grabbed a berry from a branch just above her head, and popped it in her mouth. Henry thought about telling her, for the hundredth time, that she must wash the berries before eating them. Instead, he decided that he'd work on filling her jar.
+
+"Well Papa, there was a great and powerful sorceress, who lived at the top of a mountain. Stephie decided that she and Yo should visit the sorceress, to see whether the sorceress had a potion which could help her memory."
+
+"That must have been very brave of Stephie."
+
+"Well, perhaps a bit. But she had Yo with her. She made plenty of peanut butter sandwiches, and packed them in her backpack. And as they climbed the mountain, Stephie and Yo sang and sang, which made the journey go quickly."
+
+"What a good idea. Stephie sounds like quite a clever little girl."
+
+Sophie shrugged. She had spotted a branch with a clump of ripened berries, hidden behind a big leaf. She reached forward to pluck them off the branch, and dropped them in her jar, one by one. "I think we might have enough berries now, Papa."
+
+***
+
