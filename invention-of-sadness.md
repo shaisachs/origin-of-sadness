@@ -94,3 +94,32 @@ Sophie shrugged. She had spotted a branch with a clump of ripened berries, hidde
 
 ***
 
+They had finished rolling out the dough and Sophie still had not mentioned the ending to her story. Henry had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
+
+With the table still covered in flour, he finally relented. "And so, Poppet? What happened when Stephie finally found the sorceress? Did she get her magic potion?"
+
+"Oh, no, Papa," Sophie responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have such potions. In fact she was a little bit angry with Stephie for even asking in the first place."
+
+"What sort of sorceress doesn't have a magic potion?"
+
+"Well, a sorceress who lives in the middle of a vast forest, of course. She must be too busy helping little girls with their problems to bother brewing up potions."
+
+"I see." Henry picked up the dough that Sophie had rolled out, and carefully set it in the pie tin. He and Sophie picked up spoons and began spooning the sticky mulberry jam out of the pot and on top of the dough. "So then - what did the sorceress do?"
+
+"It was really quite simple, after all. 'Think of a time when you were sad, little girl,' the sorceress told Stephie. 'And ask your friend here to tell you about that time, whenever you are having trouble remembering Yo.'"
+
+"So Yo became a song about a time when Stephie was said?" With the pie tin filled, Henry took a fork and crimped the edge of the pie, rotating the tin by degrees until the entire crust had been prepared.
+
+"Oh yes, that is exactly what happened. Because you see Stephie's mother had once gone on a long, long voyage, into the forest, and she had still not returned. So Yo began to tell the story of that voyage into the forest."
+
+"And did that help Stephie - did that help her remember Yo?" Henry opened the oven and slid the pie tin inside.
+
+Sophie sat at the table, looking at the orange glow of the oven. Through the glass she could see the jam begin to bubble softly. In a few minutes it would solidify into a gel, and later that evening they'd have mulberry pie for dinner.
+
+"Well, it did help her. But a curious thing happened - because as Yo began telling that story, Yo herself changed. In fact she split into two!"
+
+"So now there were two of Yo? How marvelous." Henry had grabbed a sponge and had begun wiping down the kitchen table, wiping up the little drops of mulberry jam and stray bits of flower into his cupped hand.
+
+"Yes, and in fact soon there wee many more than two - because the second Yo became friends with another little girl, and when that second Yo began telling another sad story, it again split into two, again and again."
+
+"Well Poppet. Imagine that." Henry poured Sophie a glass of milk, and watched her as she watched the pie baking.
