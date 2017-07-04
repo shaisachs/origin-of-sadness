@@ -82,11 +82,11 @@ At this time of year, it was only the berries at the very bottom of the bush whi
 
 Sophie grabbed a berry from a branch just above her head, and popped it in her mouth. Henry thought about telling her, for the hundredth time, that she must wash the berries before eating them. Instead, he decided that he'd work on filling her jar.
 
-"Well Papa, there was a great and powerful sorceress, who lived at the top of a mountain. Stephie decided that she and Yo should visit the sorceress, to see whether the sorceress had a potion which could help her memory."
+"Well Papa, there was a great and powerful sorceress, who lived in the middle of a vast forest. Stephie decided that she and Yo should visit the sorceress, to see whether the sorceress had a potion which could help her memory."
 
 "That must have been very brave of Stephie."
 
-"Well, perhaps a bit. But she had Yo with her. She made plenty of peanut butter sandwiches, and packed them in her backpack. And as they climbed the mountain, Stephie and Yo sang and sang, which made the journey go quickly."
+"Well, perhaps a bit. But she had Yo with her. She made plenty of peanut butter sandwiches, and packed them in her backpack. And as they hiked through the forest, Stephie and Yo sang and sang, which made the journey go quickly."
 
 "What a good idea. Stephie sounds like quite a clever little girl."
 
