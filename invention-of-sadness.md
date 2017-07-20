@@ -44,13 +44,13 @@ That was Sylvie's favorite game with Sophie, to make up silly stories all day lo
 
 "Well then, I'll do my best." Henry set his spade down on the ground, and sat back on his haunches. How did every good story begin? "Once upon a time, there was a king in a castle, who ruled over a vast kingdom..."
 
-"No, Papa, you're telling it wrong!" Sophie stamped her foot into the grass, and it was only at that moment that Henry realized she had worn her new sneakers for the afternoon's chore. They were brand new, purchased just yesterday after school. The sneakers were a gleaming color of white - or in any case, they had been yesterday - with a streak of purple on both sides and heels made of plastic with shiny red lights that turned on whenever Sophie took a step. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
+"No, Papa, you're telling it wrong!" Sophie stamped her foot into the grass, and it was only at that moment that Henry realized she had worn her new sneakers for the afternoon's chore. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or in any case, they had been yesterday - with a streak of purple on both sides and heels made of plastic with shiny red lights that turned on whenever Sophie took a step. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
 
 "Sounds like Stephie must have had a real talent, right Sophie?" Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair of sneakers.
 
 "Oh yes. Stephie was the best singer in her whole school, in the whole town even."
 
-"Well, that is a marvelous story. Did Stephie invent the very first sad song, is that it?" Henry gathered all the little rocks they had unearthed from the garden into a little pile, and left it by the side of the garden.
+"Well, that is a lovely story. Did Stephie invent the very first sad song, is that it?" Henry gathered all the little rocks they had unearthed from the garden into a little pile, and left it by the side of the garden.
 
 "No! There's more to the story, you should know that! We haven't even reached the middle yet!" Sophie's face was drawn into a deep scowl, and without realizing it she had balled the packet of seeds into a fist.
 
@@ -68,13 +68,13 @@ Then Sophie was born, and everything changed.
 
 At the edge of the yard stood a line of maple trees, stout old things that had been there since they had bought the house, and probably many years before that. Any day now, the leaves would turn a bright shade of red. But already they were starting to flutter off the branches, one or two or three at a time.
 
-Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already quite a few leaves on the ground. Henry gathered them together into a big pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little.
+Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already quite a few leaves on the ground. Henry gathered them together into a big pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little. "I wonder if this was one of Stephie's songs," Sophie said, burying her hands in the vast pile of leaves, crunching them through her fingers. "Only she must have known the words."
 
-"Is that one of the songs that Stephie liked to sing?" Henry asked, pausing for a minute and leaning against his rake.
+"The words to the song? I thought that was just a simple tune." Henry paused for a minute and leaned against his rake.
 
-Sophie dropped the leaves she had gathered into the bag, and wiped them off before answering. "No, I don't think so. Because Sophie preferred to sing, you see. With words."
+Sophie dropped the leaves she had gathered into the bag, and wiped her hands off before answering. "Oh no. Stephie would have known the words. She knew the words to every song."
 
-"Ah, that sounds lovely. Did she know quite a few songs, then?"
+"She must have known quite a few songs, then."
 
 "Many, many songs. More than you could count, Papa. She had a song for every possible thing she wanted to do: one for reading a book, another for eating dinner, a third one for playing with her dog, and so on. But that was the problem. One day while she was climbing a tree, she found that she couldn't remember the words to the song she was singing."
 
@@ -104,42 +104,70 @@ Sophie shrugged. She had just about finished putting the last few leaves into th
 
 ***
 
-Sylvie had gone back to work when Sophie was six months old. Those had been difficult, hectic days, but they had made it work, with Henry coming home early to take Sophie from the nanny and Sylvie taking care of Sophie in the early mornings. Their daughter was a bright, curious thing, who babbled from her crib non-stop and loved anything that was shiny or crinkly.
+Sylvie had gone back to work when Sophie was six months old. Those had been hectic, but wonderful days, and somehow they had made it work, with Henry coming home early to take Sophie from the nanny and Sylvie taking care of Sophie in the early mornings. Their daughter was a bright, curious thing, who babbled from her crib non-stop and loved anything that was shiny or crinkly.
 
 For a while it seemed as though everything was perfect, despite all the work of raising a newborn. Sylvie was doing well at her job - her books were selling well and it seemed as though she could turn almost any manuscript into a best-seller by sheer force of will. There was talk of another promotion, a still-better job with still-longer hours.
 
-It was just after Stephie's second birthday that Sylvie decided she wanted something different altogether.
+It was just after Sophie's second birthday, a little before Easter, that Sylvie decided she wanted something different altogether. One night she came home, just after Henry had put Sophie to bed, and announced that she would be going to night school to learn how to make films.
 
 ***
 
-
-
 They had finished rolling out the dough and Sophie still had not mentioned the ending to her story. Henry had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
 
-With the table still covered in flour, he finally relented. "And so, Poppet? What happened when Stephie finally found the sorceress? Did she get her magic potion?"
+With the table still covered in flour, he finally relented to his curiosity. "And so, Poppet? What happened when Stephie finally found the sorceress? Did she get her magic potion?"
 
-"Oh, no, Papa," Sophie responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have such potions. In fact she was a little bit angry with Stephie for even asking in the first place."
+"Oh, no, Papa," Sophie responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have a potion for Stephie. In fact she didn't have any potions at all!"
 
 "What sort of sorceress doesn't have a magic potion?"
 
 "Well, a sorceress who lives in the middle of a vast forest, of course. She must be too busy helping little girls with their problems to bother brewing up potions."
 
-"I see." Henry picked up the dough that Sophie had rolled out, and carefully set it in the pie tin. He and Sophie picked up spoons and began spooning the sticky mulberry jam out of the pot and on top of the dough. "So then - what did the sorceress do?"
+"I see." Henry picked up the dough that Sophie had rolled out, and carefully set it in the pie tin. He and Sophie began spooning the sticky blueberry jam out of the pot and on top of the dough. "So then - what did Stephie do? Was the sorceress able to help her at all?"
 
-"It was really quite simple, after all. 'Think of a time when you were sad, little girl,' the sorceress told Stephie. 'And ask your friend here to tell you about that time, whenever you are having trouble remembering Yo.'"
+"Well, the sorceress was able to teach Stephie a special tune, you see. And she told Stephie that if she hummed that tune and thought of her climbing song, then she would remember the words to the song after all."
 
-"So Yo became a song about a time when Stephie was said?" With the pie tin filled, Henry took a fork and crimped the edge of the pie, rotating the tin by degrees until the entire crust had been prepared.
+"How marvelous!" Henry felt the door of the oven, to check that it was warm enough for the pie. "So Stephie was able to remember the lyrics, after all?"
 
-"Oh yes, that is exactly what happened. Because you see Stephie's mother had once gone on a long, long voyage, into the forest, and she had still not returned. So Yo began to tell the story of that voyage into the forest."
+"Well, yes, but there was a problem. Because after Stephie returned from the forest, she tried what the sorceress had told her. And she found that she could remember the words, perfectly. But she had forgotten to ask the sorceress one other thing."
 
-"And did that help Stephie - did that help her remember Yo?" Henry opened the oven and slid the pie tin inside.
+Henry carefully set the pie in the oven, and removed his oven mitts. "What was that?"
 
-Sophie sat at the table, looking at the orange glow of the oven. Through the glass she could see the jam begin to bubble softly. In a few minutes it would solidify into a gel, and later that evening they'd have mulberry pie for dinner.
+Sophie licked at a bit of blueberry on her thumb. "How to climb a tree! Stephie had forgotten how to climb a tree. When she got back home she found that she could sing her song perfectly well, but she didn't know what to do while singing it."
 
-"Well, it did help her. But a curious thing happened - because as Yo began telling that story, Yo herself changed. In fact she split into two!"
+What, thought Henry, could posess a seven year old girl to come up with such a sad story? He found that he could not quite meet her eyes, so he looked down at the linoleum floor instead, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed blueberry hung on to the toe of Sophie's right shoe, the lights in the heel blinking onto the tile.
 
-"So now there were two of Yo? How marvelous." Henry had grabbed a sponge and had begun wiping down the kitchen table, wiping up the little drops of mulberry jam and stray bits of flower into his cupped hand.
+"Well - couldn't Stephie just return to the sorceress? To ask her how to climb a tree?"
 
-"Yes, and in fact soon there wee many more than two - because the second Yo became friends with another little girl, and when that second Yo began telling another sad story, it again split into two, again and again."
+"She tried that, of course. But she could not find the way any more. She would walk in to the forest and just wind up walking in circles. One time she thought maybe she had found the right path - but there was no trace of the sorceress's house, when she got to the clearing. She never found it again, and she never climbed another tree."
 
-"Well Poppet. Imagine that." Henry poured Sophie a glass of milk, and watched her as she watched the pie baking.
+***
+
+The years Sylvie had spent in night school were difficult enough, with Sylvie often too tired to take care of Sophie in the mornings, or returning too late for bedtime. But it was Sylvie's decision to quit her job and to try to produce her own films that finally caused Henry to snap.
+
+What, he asked her, would they do without her salary? He did not make nearly enough by himself to support the three of them - and it would be many years before she would be earning any kind of money, let alone the generous one she had been earning in the publishing industry.
+
+It was not a gentle argument, or a short one. For years they bickered over finances, doing their best to hide the bitter fights from Sophie, and often failing. Sylvie made one film, and then another and another - and lost money on each one. The surprise success of her fifth film, an off-key animated film about a family of woodpeckers, helped save their marriage.
+
+These days Sylvie had her pick of big-budget films, and it was a rare dinner that was not interrupted by an urgent call from some studio president or another. Sylvie had begun bringing Sophie with her on days when school was out, giving her free roam on movie sets and even monogramming a short director's chair for her daughter. Sophie loved these days. At dinner she chattered endlessly about the actors, and the cameras, and all the funny costumes.
+
+So when Sylvie first told Henry that she'd be traveling to film her next movie - he still didn't quite understand the plot, it was a thriller and had something to do with technology - he had wondered whether she planned to take Sophie with her. He was a little overwhelmed with the idea of caring for Sophie by himself, without any help for an entire week. But he hated the idea of seven days without his daughter.
+
+***
+
+"So, Poppet. Do you suppose that the song you heard on the radio was the one that used to be Stephie's climbing song? And that's why it is so sad - because Stephie was never able to climb again?"
+
+Henry sat on the edge of the bed, Sophie lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in.
+
+"Perhaps, Papa. Or maybe it was just another song, with the same tune."
+
+He tried to remember what it was they had listened to on the radio, attempted to whistle it. "Like that? Was that Sophie's tune, Poppet?"
+
+Sophie smiled, her eyelids heavy. "Yes, I think that must have been it, Papa. Only - don't call me Poppet, please."
+
+Henry winced, but Sophie hadn't seen it; her eyes were already closed. "Why not ... Sophie?"
+
+"Well, I'm not really your puppet, am I?" She had turned over, facing the lamp on her bedside table. "I'm just your Sophie, you see."
+
+Henry stood up, paced back and forth between the door for a moment. Finally he sighed, and turned off the lamp.
+
+"Very well, Sophie. Sweet dreams."
