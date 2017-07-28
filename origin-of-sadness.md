@@ -136,7 +136,7 @@ Henry carefully set the pie in the oven, and removed his oven mitts. "What was t
 
 Sophie licked at a bit of jam on her thumb. "How to climb a tree! Stephie had forgotten how to climb a tree. When she got back home she found that she could sing her song perfectly well, but she didn't know what to do while singing it."
 
-What, thought Henry, could posess a seven year old girl to come up with such a sad story? He found that he could not quite meet her eyes, so he looked down at the linoleum floor instead, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink.
+Henry sighed, grabbed a table from the chair, and sat down heavily. He looked down at the linoleum floor instead, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink.
 
 "Well - couldn't Stephie just return to the sorceress? To ask her how to climb a tree?"
 
@@ -154,9 +154,17 @@ Those days were in the past. Now, Sylvie had her pick of big-budget films, and i
 
 ***
 
-"So, Poppet. Do you suppose that the song you heard on the radio was Stephie's climbing song? And that's why it is so sad - because she was never able to climb again?"
+The pie was nearly done. Henry still sat at the kitchen table, staring out the window. Beside him, Sophie clutched a glass of milk, swinging her feet back and forth.
+
+"It's a sad thing when you know the song, but you can't do the thing the song is telling you to do. Isn't it, Poppet?"
+
+"Very, very sad, Papa."
+
+***
 
 Henry sat on the edge of the bed, Sophie lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in.
+
+"I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Stephie's climbing song?"
 
 "Perhaps. Or maybe it was just another song, with the same tune."
 
