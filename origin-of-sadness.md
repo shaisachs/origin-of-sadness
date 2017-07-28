@@ -2,11 +2,11 @@
 
 "Papa," Sophie asked, "why am I sad?"
 
-Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Sophie was born. From the jazz quartet on the radio, the trumpet blared an improvised complaint, and the bluebird seemed to turn its head in thoughtful consideration, and then flew off.
+Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Sophie was born. From the jazz quartet on the radio, the trumpet blared an improvised complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
 
 "Why, Poppet - it must be because Mama isn't home. Don't worry - she'll be home next Friday."
 
-Sophie did not looking up from her coloring. In her hands, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her left hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's right ear.
+Sophie did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
 
 "I know Mama isn't home. She's been gone for a whole day now. And I'm not worried - every time she leaves she returns. But why am I sad just this moment, Papa? I wasn't sad before."
 
@@ -14,11 +14,11 @@ Sophie did not looking up from her coloring. In her hands, a line drawing of a b
 
 Sophie set down the crayon and carefully considered her drawing. She blew softly on the paper, scattering the crayon shavings, before picking up the forest green to finish the tufts of grass at the bunny's feet. "Before you turned on the radio, I suppose. Why should that make me sad?"
 
-Saturdays alone with Sophie were a delight he had not anticipated. When Sylvie had first announced her rigorous travel schedule, one week a month over the course of an entire year, it had seemed that these weekends would stretch on forever, the need to chase after Sophie and keep her entertained all day. But after a few months he found that they passed almost too quickly, that Sophie's nonstop chatter kept him endlessly fascinated, even if she never seemed to pick up her toys. With Sylvie's travel schedule winding down, this weekend would be their last alone, certainly for a long while, and soon enough it would be his wife answering these mystifying questions.
+Saturdays alone with Sophie were a delight he had not anticipated. When Sylvie had first announced her rigorous travel schedule, one week a month over the course of an entire year, it had seemed that these weekends would stretch on forever, the need to chase after Sophie and keep her entertained all day. But after a few weekends he found that they passed almost too quickly, that Sophie's nonstop chatter kept him endlessly fascinated, even if she never seemed to pick up her toys. With Sylvie's travel schedule winding down, this weekend would be their last alone, certainly for a long while. Soon enough it would be his wife answering these mystifying questions.
 
 "Are you saying that the song made you sad, is that it?"
 
-Sophie regarded him for a moment, then beyond to the window. "Of course, that is exactly what I'm saying."
+Sophie regarded him for a moment, then exhaled a little puff of air. "Of course, that is exactly what I'm saying."
 
 "Why then, it's a sad song. And it reminds you that Mama is gone. And that makes you sad." He put the pan away and turned towards her, leaning on the countertap and wiping his hands with a towel. Even before he finished saying it, Henry knew that this answer would not satisfy her.
 
@@ -34,7 +34,7 @@ Sophie dug around in the little foil pouch, brightly painted with a pair of carr
 
 "Have you figured it out yet, Papa?"
 
-He turned the question over in his head as he placed the seed into the little depression in the soil, heaped a little bit more dirt onto the top, and patted the completed mound flat. And finally he remembered the question she had asked just after lunch.
+He turned the question over in his head as he placed the seed into the little depression in the soil, heaped a little bit more dirt onto the top, and patted the completed mound flat. Finally he remembered the question she had asked just after lunch.
 
 "Have I figured out why that song made you sad? No, I'm afraid I haven't."
 
@@ -44,7 +44,9 @@ That was Sylvie's favorite game with Sophie, to make up silly stories all day lo
 
 "Well then, I'll do my best." Henry set his spade down on the ground, and sat back on his haunches. How did every good story begin? "Once upon a time, there was a good, wise king, who ruled over a vast kingdom..."
 
-"No, Papa, you're telling it wrong!" Sophie stamped her foot into the grass, and it was only at that moment that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or in any case, they had been yesterday - with a streak of purple on both sides and heels that lit up with shiny red lights whenever Sophie took a step. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
+"No, Papa, you're telling it wrong!" Sophie stamped her foot into the grass, and it was only at that moment that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or in any case, they had been yesterday - with a streak of purple on both sides and heels that lit up with shiny red lights whenever Sophie took a step.
+
+"The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
 
 "Sounds like Stephie must have had a real talent, right Sophie?" Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair of sneakers.
 
@@ -58,7 +60,7 @@ That was Sylvie's favorite game with Sophie, to make up silly stories all day lo
 
 ***
 
-Sylvie had been a storyteller for as long as Henry could remember. When they first met, taking shelter at a bus stop from a sudden torrential downpour, she had regaled him with a long, drawn-out recounting of her miserable, awful day. Sylvie's mother had been in the hospital so she had gone to visit her; but she had parked illegally and returned to find her car towed; then she discovered she had lost her glasses; and by the time she had finally found them, and made her way to the tow yard, it had already closed. He felt such pity for her that he had lent her his umbrella; and had only learned that the whole story was a complete fabrication weeks later, when she finally returned it.
+Sylvie had been a storyteller for as long as Henry could remember. When they first met, two strangers taking shelter at a bus stop from a sudden torrential downpour, she had regaled him with a long, drawn-out recounting of her miserable, awful day. Sylvie's mother had been in the hospital so she had gone to visit her; but she had parked illegally and returned to find her car towed; then she discovered she had lost her glasses; and by the time she had finally found them, and made her way to the tow yard, it had already closed. Henry felt such pity for her that he had lent her his umbrella. He had only learned that the whole story was a complete fabrication weeks later, when she finally returned it.
 
 Back then Sylvie was just starting her career in the publishing industry. After a couple of years in the marketing department at a small but well-regarded publishing house, she was making a name for herself. Not long after they had started dating she sought, and won, a big promotion. A year after they were married, Sylvie had taken a fancy job at a much larger publisher, with a dozen different imprints and thousands of new books each year.
 
@@ -68,7 +70,7 @@ Then Sophie was born, and everything changed.
 
 At the edge of the yard stood a line of maple trees, stout old things that had been there since they had bought the house, and probably many years before that. Any day now, the leaves would turn a bright shade of red. But already a few strays were starting to flutter off the branches, one or two or three at a time.
 
-Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already quite a few leaves on the ground. Henry gathered them together into a big pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little. "I wonder if this was one of Stephie's songs," Sophie said, burying her hands in the vast pile of leaves, crunching them through her fingers. "Only she must have known the words."
+Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little. "I wonder if this was one of Stephie's songs," Sophie said, burying her hands in the vast pile of leaves, crunching them through her fingers. "Only she must have known the words."
 
 "You mean the lyrics? I didn't even realize that there were any. I thought that you were just humming a simple tune." Henry paused for a minute and leaned against his rake, dabbing at his forehead with the back of his hat.
 
@@ -108,7 +110,7 @@ Sylvie had gone back to work when Sophie was six months old. Those had been hect
 
 For a while it seemed as though everything was perfect, despite all the work of raising a newborn. Sylvie was doing well at her job - her books were selling well and it seemed as though she could turn almost any manuscript into a best-seller by sheer force of will. There was talk of another promotion, a still-better job with still-longer hours.
 
-It was just after Sophie's second birthday, a little before Easter, that Sylvie decided she wanted something different altogether. One night she came home, just after Henry had put Sophie to bed, and announced that she would be going to night school to learn how to make films.
+It was just after Sophie's second birthday, a little before Easter, that Sylvie decided she wanted something different altogether. One night she came home, just after Henry had put Sophie to bed. "I want to make films," she had said, simple as that, the glossy catalog for the art school that offered night classes poking out of her purse.
 
 ***
 
@@ -120,7 +122,7 @@ With the table still covered in flour, he finally gave in to his curiosity. "And
 
 "What sort of sorceress doesn't have a magic potion?"
 
-"Well, a sorceress who lives in the middle of a vast forest, of course. She must be too busy helping little girls with their problems to bother brewing up potions."
+"Well, a sorceress who lives in the middle of a vast forest, of course. She must have been too busy helping little girls with their problems to bother brewing up potions."
 
 "I see." Henry picked up the dough that Sophie had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Sophie, and they both began spooning the sticky mulberry jam into the pie. "So then - what did Stephie do? Was the sorceress able to help her at all?"
 
@@ -132,9 +134,9 @@ With the table still covered in flour, he finally gave in to his curiosity. "And
 
 Henry carefully set the pie in the oven, and removed his oven mitts. "What was that?"
 
-Sophie licked at a bit of blueberry on her thumb. "How to climb a tree! Stephie had forgotten how to climb a tree. When she got back home she found that she could sing her song perfectly well, but she didn't know what to do while singing it."
+Sophie licked at a bit of jam on her thumb. "How to climb a tree! Stephie had forgotten how to climb a tree. When she got back home she found that she could sing her song perfectly well, but she didn't know what to do while singing it."
 
-What, thought Henry, could posess a seven year old girl to come up with such a sad story? He found that he could not quite meet her eyes, so he looked down at the linoleum floor instead, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed blueberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink.
+What, thought Henry, could posess a seven year old girl to come up with such a sad story? He found that he could not quite meet her eyes, so he looked down at the linoleum floor instead, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink.
 
 "Well - couldn't Stephie just return to the sorceress? To ask her how to climb a tree?"
 
@@ -146,9 +148,9 @@ The years Sylvie had spent in night school were difficult enough, with Sylvie of
 
 What, he asked her, would they do without her salary? He did not make nearly enough by himself to support the three of them - and it would be many years before she would be earning any kind of money, let alone enough to replace the generous salary she had been earning as a marketing executive.
 
-It was not a gentle argument, or a short one. For years they bickered over finances, doing their best to hide the bitter fights from Sophie, and often failing. Sylvie made one film, and then another and another - and lost money on each one. The surprise success of her fifth film, an off-key animated film about a family of woodpeckers, helped save their marriage.
+It was not a gentle argument, nor a short one. For years they bickered over finances, doing their best to hide the bitter fights from Sophie, and often failing. Sylvie made one film, and then another and another - and lost money on each one. The surprise success of her fifth film, an off-key animated film about a family of woodpeckers, helped save their marriage.
 
-Those days were long gone. Now, Sylvie had her pick of big-budget films, and it was a rare dinner at home that was not interrupted by an urgent call from some studio president or another. Sylvie had begun bringing Sophie with her to the studio on days when school was out, giving her free roam on movie sets and even monogramming a short director's chair for her daughter. Sophie loved these days: she would return home at night, chattering endlessly about the actors, and the cameras, and all the funny costumes.
+Those days were in the past. Now, Sylvie had her pick of big-budget films, and it was a rare dinner at home that was not interrupted by an urgent call from some big-name executive or another. Sylvie had begun bringing Sophie with her to the studio on days when school was out, giving her free roam on movie sets and even monogramming a short director's chair with Sophie's initials in a swooping curly script on the back. Sophie loved these days: she would return home at night, chattering endlessly about the actors, and the cameras, and all the funny costumes.
 
 ***
 
