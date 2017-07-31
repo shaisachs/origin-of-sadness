@@ -2,7 +2,7 @@
 
 "Papa," Sophie asked, "why am I sad?"
 
-Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Sophie was born. From the jazz quartet on the radio, the trumpet blared an improvised complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
+Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Sophie was born. From the folk duet on the radio, the guitar picked out a shaky complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
 
 "Why, Poppet - it must be because Mama isn't home. Don't worry - she'll be home next Friday."
 
@@ -136,7 +136,7 @@ Henry carefully set the pie in the oven, and removed his oven mitts. "What was t
 
 Sophie licked at a bit of jam on her thumb. "How to climb a tree! Stephie had forgotten how to climb a tree. When she got back home she found that she could sing her song perfectly well, but she didn't know what to do while singing it."
 
-Henry sighed, grabbed a table from the chair, and sat down heavily. He looked down at the linoleum floor instead, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink.
+Henry sighed, grabbed a chair from the table, and sat down heavily. He looked down at the linoleum floor instead, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink.
 
 "Well - couldn't Stephie just return to the sorceress? To ask her how to climb a tree?"
 
@@ -144,13 +144,11 @@ Henry sighed, grabbed a table from the chair, and sat down heavily. He looked do
 
 ***
 
-The years Sylvie had spent in night school were difficult enough, with Sylvie often too tired to take care of Sophie in the mornings, or returning too late for bedtime. But it was Sylvie's decision to quit her job and to try to produce her own films that finally caused Henry to snap.
+The year Sylvie had spent in film school were difficult enough, with Sylvie often too tired to take care of Sophie in the mornings, or returning too late for bedtime. But it was Sylvie's decision to quit her job and to try to produce her own films that finally caused Henry to snap, a blistering fusillade of questions after Sophie's bed time.
 
 What, he asked her, would they do without her salary? He did not make nearly enough by himself to support the three of them - and it would be many years before she would be earning any kind of money, let alone enough to replace the generous salary she had been earning as a marketing executive.
 
-It was not a gentle argument, nor a short one. For years they bickered over finances, doing their best to hide the bitter fights from Sophie, and often failing. Sylvie made one film, and then another and another - and lost money on each one. The surprise success of her fifth film, an off-key animated film about a family of woodpeckers, helped save their marriage.
-
-Those days were in the past. Now, Sylvie had her pick of big-budget films, and it was a rare dinner at home that was not interrupted by an urgent call from some big-name executive or another. Sylvie had begun bringing Sophie with her to the studio on days when school was out, giving her free roam on movie sets and even monogramming a short director's chair with Sophie's initials in a swooping curly script on the back. Sophie loved these days: she would return home at night, chattering endlessly about the actors, and the cameras, and all the funny costumes.
+It was not a gentle argument, nor a short one. For years they bickered over finances, doing their best to hide the bitter fights from Sophie, and often failing. Sylvie made one film, and then another and another - and lost money on each one. Henry had looked up one divorce lawyer after another; there was even a lonesome afternoon when he had punched a phone number into his phone, but shut off the screen before making the call.
 
 ***
 
@@ -160,9 +158,36 @@ The pie was nearly done. Henry still sat at the kitchen table, staring out the w
 
 "Very, very sad, Papa."
 
+"Did I ever tell you about the first dance at our wedding?"
+
+Sophie shook her head mid-sip, dribbling a bit of milk down her chin.
+
+"It was a beautiful old French love song, with trumpets and violins and probably some cymbals. It went a little like this: ba-dum, ba-dum, ya da da-da..." Henry wiggled his fingers a bit in the air, his hands flying about like butterflies.
+
+"Was Mama a good dancer?"
+
+"Oh you wouldn't believe it, she was the best dancer. Mama could dance any song she chose. Even if she'd never heard it before, she'd start by tapping her feet and nodding her head. Before you knew it she had taken over the dance floor."
+
+"And you never danced again, after the wedding?" Sophie's eyes were wide, the glass of milk held steady by her hands in her lap.
+
+"Well, yes we did, but it was never the same, was it? After all, how many weddings did Mama and I have?" Henry tapped an index finger on his upper lip, as though in serious thought.
+
+"Only one, silly!" Sophie giggled and commenced kicking her feet under the table.
+
+"Ah that's right, we only had one wedding. And only one first dance at the wedding. But after that we had something even better than a wedding, didn't we?"
+
+The oven timer went off, an insistent beep. "Dessert?" Sophie asked.
+
+Henry caught a swinging foot under the table, and gave a little squeeze. "Something much, much better than that, Poppet."
+
 ***
 
-Henry sat on the edge of the bed, Sophie lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in.
+This film would be Sylvie's fifth, and the riskiest project yet. It was something rather ambitious, a high-tech thriller with sets all over the country.  Somehow, despite a lackluster track record, she had managed to attract just enough investors to finance the ambitious, multi-city filming schedule.
+
+
+***
+
+Henry sat on the edge of the bed, Sophie lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in. There they lay in the corner, underneath the director's chair with her name monogrammed in big, swoopy letters on the back.
 
 "I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Stephie's climbing song?"
 
