@@ -72,7 +72,7 @@ At the edge of the yard stood a line of maple trees, stout old things that had b
 
 Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little. "I wonder if this was one of Stephie's songs," Sophie said, burying her hands in the vast pile of leaves, crunching them through her fingers. "Only she must have known the words."
 
-"You mean the lyrics? I didn't even realize that there were any. I thought that you were just humming a simple tune." Henry paused for a minute and leaned against his rake, dabbing at his forehead with the back of his hat.
+"You mean the lyrics? I didn't even realize that there were any. I thought that you were just humming a simple tune." Henry paused for a minute and leaned against the rake, dabbing at his forehead with the back of his hat.
 
 Sophie dropped the leaves she had gathered into the bag, and wiped her hands off before answering. "Oh no. Stephie would have known the words. She knew the words to every song."
 
@@ -144,11 +144,11 @@ Henry sighed, grabbed a chair from the table, and sat down heavily. He looked do
 
 ***
 
-The year Sylvie had spent in film school were difficult enough, with Sylvie often too tired to take care of Sophie in the mornings, or returning too late for bedtime. But it was Sylvie's decision to quit her job and to try to produce her own films that finally caused Henry to snap, a blistering fusillade of questions after Sophie's bed time.
+The years in film school were difficult enough, with Sylvie often too tired to take care of Sophie in the mornings, or returning too late for bedtime. But it was Sylvie's decision to quit her job and to try to produce her own films that finally caused Henry to snap, a blistering fusillade of questions after Sophie's bed time.
 
 What, he asked her, would they do without her salary? He did not make nearly enough by himself to support the three of them - and it would be many years before she would be earning any kind of money, let alone enough to replace the generous salary she had been earning as a marketing executive.
 
-It was not a gentle argument, nor a short one. For years they bickered over finances, doing their best to hide the bitter fights from Sophie, and often failing. Sylvie made one film, and then another and another - and lost money on each one. Henry had looked up one divorce lawyer after another; there was even a lonesome afternoon when he had punched a phone number into his phone, but shut off the screen before making the call.
+It was not a gentle argument, nor a short one. For years they bickered over finances, doing their best to hide the bitter fights from Sophie, and often failing. Sylvie made one film, and then another and another - and lost money on each one. Henry had looked up one divorce lawyer after another. There was even a lonesome afternoon when he had punched a phone number into his phone; it was the buzz of the waching machine, announcing the end of the spin cycle, which had pulled him away.
 
 ***
 
@@ -182,8 +182,11 @@ Henry caught a swinging foot under the table, and gave a little squeeze. "Someth
 
 ***
 
-This film would be Sylvie's fifth, and the riskiest project yet. It was something rather ambitious, a high-tech thriller with sets all over the country.  Somehow, despite a lackluster track record, she had managed to attract just enough investors to finance the ambitious, multi-city filming schedule.
+This film would be Sylvie's fifth, and the riskiest project yet. It was something rather ambitious, a high-tech thriller with filming locations all over the country. Yesterday she had left town to wrap up the last week of shooting; when she returned, she would begin the laborious editing process, and with any luck the movie would be released next year.
 
+It seemed like ages ago, when Henry had discovered the script for the film. There on the shelf in the laundry room, he had found a stack of typed pages rolled into a tube, held together by a rubber band. Sylvie had taken Sophie on an errand run, and wouldn't be back for several hours. He had unrolled the thick bundle and started to read. Some pages were heavily scarred with red ink, others with just a couple of inscrutable underlines and question marks. A scene towards the end of the screenplay had caught his eye, a few lines of dialogue circled three or four times over. In the margin, a cartoon drawing of a girl with buggy eyes and a slightly upturned nose that could only be his daughter.
+
+That night, after putting Sophie to bed, he had opened a bottle of wine, presented a half-full glass to Sylvie with one hand, and the rolled up manuscript with the other. Casting a star with wide appeal, one who looked something like a grown-up Sophie, had been Sylvie's idea. It had been Henry who encouraged her to seek investors from her old contacts in publishing. The movie would be theirs.
 
 ***
 
