@@ -4,7 +4,7 @@
 
 Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Sophie was born. From the folk duet on the radio, the guitar picked out a shaky complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
 
-"Why, Poppet - it must be because Mama isn't home. Don't worry - she'll be home next Friday."
+"Why, Poppet - it must be because Mama isn't home. Don't worry - she'll be home next Friday. Now, could you bring me your plate, please?"
 
 Sophie did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
 
@@ -16,11 +16,11 @@ Sophie set down the crayon and carefully considered her drawing. She blew softly
 
 Saturdays alone with Sophie were a delight he had not anticipated. When Sylvie had first announced her rigorous travel schedule, one week a month over the course of an entire year, it had seemed that these weekends would stretch on forever, the need to chase after Sophie and keep her entertained all day. But after a few weekends he found that they passed almost too quickly, that Sophie's nonstop chatter kept him endlessly fascinated, even if she never seemed to pick up her toys. With Sylvie's travel schedule winding down, this weekend would be their last alone, certainly for a long while. Soon enough it would be his wife answering these mystifying questions.
 
-"Are you saying that the song made you sad, is that it?"
+"Are you saying that the song made you sad, is that it?" Henry plucked Sophie's plate from off the table, taking care not to drop the fork on her drawing.
 
 Sophie regarded him for a moment, then exhaled a little puff of air. "Of course, that is exactly what I'm saying."
 
-"Why then, it's a sad song. And it reminds you that Mama is gone. And that makes you sad." He put the pan away and turned towards her, leaning on the countertap and wiping his hands with a towel. Even before he finished saying it, Henry knew that this answer would not satisfy her.
+"Why then, it's a sad song. And it reminds you that Mama is gone. And that makes you sad." He gave the plate a swipe, set it in the dishwasher, and turned towards her, leaning on the countertap and wiping his hands with a towel. Even before he finished saying it, Henry knew that this answer would not satisfy her.
 
 "Papa, what a perfectly silly thing to say." Sophie brushed her hand against the paper, in the process rubbing the few remaining bits of waxy crayon into smudges on the drawing, and then fixed her drawing to the refrigerator. "It's a sad song, of course it makes me sad. But why is it a sad song? It's just some instruments on the radio, a few sounds. How does that have anything to do with Mama? No one on the radio knows that she's gone, or even who she is. Why should that make me sad?"
 
@@ -44,9 +44,9 @@ That was Sylvie's favorite game with Sophie, to make up silly stories all day lo
 
 "Well then, I'll do my best." Henry set his spade down on the ground, and sat back on his haunches. How did every good story begin? "Once upon a time, there was a good, wise king, who ruled over a vast kingdom..."
 
-"No, Papa, you're telling it wrong!" Sophie stamped her foot into the grass, and it was only at that moment that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or in any case, they had been yesterday - with a streak of purple on both sides and heels that lit up with shiny red lights whenever Sophie took a step.
+"Oh, Papa, you're telling it wrong!" Sophie stretched her feet upwards, standing on her toes for a moment, and it was only then that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or, they had been yesterday - with a streak of purple on both sides. The heels were made of tiny red lights that flashed whenever Sophie took a step.
 
-"The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
+Sophie took a breath and then sat down on the ground. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
 
 "Sounds like Stephie must have had a real talent, right Sophie?" Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair of sneakers.
 
@@ -54,7 +54,7 @@ That was Sylvie's favorite game with Sophie, to make up silly stories all day lo
 
 "Well, that is a lovely story. Did Stephie invent the very first sad song, is that it?" Henry gathered all the little rocks they had unearthed from the garden into a little pile, and left it by the side of the garden.
 
-"No! There's more to the story, you should know that! We haven't even reached the middle yet!" Sophie's face was drawn into a deep scowl, and without realizing it she had balled the packet of seeds into a fist.
+"Well, there's more to the story, of course. We haven't even reached the middle yet!" Sophie's arms extended behind her, fists pressing into the ground for support. She had crushed the packet of seeds into a ball.
 
 "Very well, then, Poppet. Let's pick up the gardening things, and continue the story after we put them away. Ok?"
 
@@ -68,13 +68,13 @@ Then Sophie was born, and everything changed.
 
 ***
 
-At the edge of the yard stood a line of maple trees, stout old things that had been there since they had bought the house, and probably many years before that. Any day now, the leaves would turn a bright shade of red. But already a few strays were starting to flutter off the branches, one or two or three at a time.
+At the edge of the yard stood a line of oak trees, stout old things that had been there since they had bought the house, and probably many years before that. Any day now, the leaves would turn a lazy shade of yellow. But already a few strays were starting to flutter off the branches, one or two or three at a time.
 
 Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little. "I wonder if this was one of Stephie's songs," Sophie said, burying her hands in the vast pile of leaves, crunching them through her fingers. "Only she must have known the words."
 
 "You mean the lyrics? I didn't even realize that there were any. I thought that you were just humming a simple tune." Henry paused for a minute and leaned against the rake, dabbing at his forehead with the back of his hat.
 
-Sophie dropped the leaves she had gathered into the bag, and wiped her hands off before answering. "Oh no. Stephie would have known the words. She knew the words to every song."
+Sophie dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "No. Stephie would have known the words. She knew the words to every song."
 
 "She must have known quite a few songs, then."
 
@@ -82,7 +82,7 @@ Sophie dropped the leaves she had gathered into the bag, and wiped her hands off
 
 "Oh dear. Couldn't she just choose another one?"
 
-"What a perfectly silly idea. How would Stephie be able to climb a tree while singing a song that was meant for something else, like chopping vegetables?"
+"What a strange idea. How would Stephie be able to climb a tree while singing a song that was meant for something else, like chopping vegetables?"
 
 "I hadn't really thought of that, I suppose." Henry went back to raking, and Sophie picked up another little pile of leaves to drop in the bag. "Well then: how did Stephie get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
 
@@ -90,7 +90,7 @@ Sophie rubbed her nose with the back of her hand a little. "She couldn't, of cou
 
 "Well, I suppose that solved the problem, then."
 
-"Not really! Stephie still wanted to climb trees. But try as she might, she couldn't remember the words. She asked her friends, and her teachers, and her parents, she even asked the dog. But no one could help her."
+"No, not at all! Stephie still wanted to climb trees. But try as she might, she couldn't remember the words. She asked her friends, and her teachers, and her parents, she even asked the dog. But no one could help her."
 
 "So then, what did she do?"
 
@@ -98,7 +98,7 @@ Sophie rubbed her nose with the back of her hand a little. "She couldn't, of cou
 
 "That must have been very brave of Stephie."
 
-"Of course. But she had her song for walking through the woods, and she had her backpack, and a map. She made plenty of peanut butter sandwiches, and packed a bottle of water. And as she hiked through the forest, Stephie sang and sang, which made the journey go quickly."
+"Well, she had her song for walking through the woods, and she had her backpack, and a map. She made plenty of peanut butter sandwiches, and packed a bottle of water. And as she hiked through the forest, Stephie sang and sang, which made the journey go quickly."
 
 "What a good idea. She sounds like quite a clever little girl."
 
