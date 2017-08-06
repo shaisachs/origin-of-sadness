@@ -4,7 +4,7 @@
 
 Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Sophie was born. From the folk duet on the radio, the guitar picked out a shaky complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
 
-"Why, Poppet - it must be because Mama isn't home. Don't worry - she'll be home next Friday. Now, could you bring me your plate, please?"
+"Why, Poppet - it must be because Mama isn't home. Don't worry - she'll be home next Friday."
 
 Sophie did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
 
@@ -44,7 +44,7 @@ That was Sylvie's favorite game with Sophie, to make up silly stories all day lo
 
 "Well then, I'll do my best." Henry set his spade down on the ground, and sat back on his haunches. How did every good story begin? "Once upon a time, there was a good, wise king, who ruled over a vast kingdom..."
 
-"Oh, Papa, you're telling it wrong!" Sophie stretched her feet upwards, standing on her toes for a moment, and it was only then that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or, they had been yesterday - with a streak of purple on both sides. The heels were made of tiny red lights that flashed whenever Sophie took a step.
+"Oh, Papa, you're telling it wrong!" Sophie stretched her calves upwards, standing on her toes for a moment, and it was only then that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or, they had been yesterday - with a streak of purple on both sides. The heels were made of tiny red lights that flashed whenever Sophie took a step.
 
 Sophie took a breath and then sat down on the ground. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
 
@@ -70,21 +70,27 @@ Then Sophie was born, and everything changed.
 
 At the edge of the yard stood a line of oak trees, stout old things that had been there since they had bought the house, and probably many years before that. Any day now, the leaves would turn a lazy shade of yellow. But already a few strays were starting to flutter off the branches, one or two or three at a time.
 
-Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little. "I wonder if this was one of Stephie's songs," Sophie said, burying her hands in the vast pile of leaves, crunching them through her fingers. "Only she must have known the words."
+Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little.
 
-"You mean the lyrics? I didn't even realize that there were any. I thought that you were just humming a simple tune." Henry paused for a minute and leaned against the rake, dabbing at his forehead with the back of his hat.
+"What do you suppose comes next in the story, Papa?" Sophie asked, burying her hands in the vast pile of leaves, crunching them through her fingers. "Is this song a part of it?"
+
+Henry paused for a minute and leaned against the rake. "I don't think I can tell you that, Poppet. It's your story, isn't it?"
+
+Sophie scowled for a moment, kicked her shoe through the grass absently. "Well, do you at least know the words to this song? It must have been one of Stephie' songs."
+
+"You mean the lyrics? I didn't even realize that there were any. I thought that you were just humming a song you made up."
 
 Sophie dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "No. Stephie would have known the words. She knew the words to every song."
 
 "She must have known quite a few songs, then."
 
-"Many, many songs. More than you could count, Papa. She had a song for every possible thing she wanted to do: one for reading a book, another for eating dinner, a third one for playing with her dog, and so on. But that was the problem. One day while she was climbing a tree, she found that she couldn't remember the words to the song she was singing."
+"Many, many songs." Sophie looked down at the ground for a moment, carefully plucked a single leaf, and dropped it in the bag. "She knew more songs than you could count, Papa. She had a song for every possible thing she wanted to do: one for reading a book, another for eating dinner, a third one for playing with her dog, and so on. But that was the problem. One day while she was climbing a tree, she found that she couldn't remember the words to the song she was singing."
 
 "Oh dear. Couldn't she just choose another one?"
 
 "What a strange idea. How would Stephie be able to climb a tree while singing a song that was meant for something else, like chopping vegetables?"
 
-"I hadn't really thought of that, I suppose." Henry went back to raking, and Sophie picked up another little pile of leaves to drop in the bag. "Well then: how did Stephie get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
+"I hadn't really thought of that." Henry went back to raking, and Sophie picked up another little pile of leaves to drop in the bag. "Well then: how did Stephie get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
 
 Sophie rubbed her nose with the back of her hand a little. "She couldn't, of course. Stephie didn't know how to climb without singing. And she couldn't sing the song if she didn't know the words. Fortunately she hadn't climbed very far, so she simply jumped out of the tree."
 
@@ -116,9 +122,9 @@ It was just after Sophie's second birthday, a little before Easter, that Sylvie 
 
 They had finished rolling out the dough and Sophie still had not mentioned the ending to her story. Henry had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
 
-With the table still covered in flour, he finally gave in to his curiosity. "And so, Poppet? What happened when Stephie finally found the sorceress? Did she get her magic potion?"
+With the table still covered in flour, he finally gave in to his curiosity. "So, Poppet, I suppose that the sorceress must have had a magic potion for Stephie - and that's how she got her climbing song back. Right?"
 
-"Oh, no, Papa," Sophie responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have a potion for Stephie. In fact she didn't have any potions at all!"
+"Oh, Papa." Sophie bit her lip as she carefully pushed the rolling pin over the dough one more time. "This is my story, remember? You can't just go making things up like that. The sorceress didn't have a potion for Stephie. In fact she didn't have any potions at all!"
 
 "What sort of sorceress doesn't have a magic potion?"
 
