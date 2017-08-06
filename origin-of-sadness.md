@@ -102,11 +102,11 @@ Sophie rubbed her nose with the back of her hand a little. "She couldn't, of cou
 
 "Well, there was a great and powerful sorceress, who lived in the middle of a vast forest. Stephie decided that she should visit the sorceress, to see whether the sorceress had a potion which could help her memory."
 
-"That must have been very brave of Stephie."
+"Don't you think that would have been dangerous? Did Stephie bring her parents with her?"
 
-"Well, she had her song for walking through the woods, and she had her backpack, and a map. She made plenty of peanut butter sandwiches, and packed a bottle of water. And as she hiked through the forest, Stephie sang and sang, which made the journey go quickly."
+"Perhaps a little dangerous. But it was Stephie's song, and only Stephie's song. So she must have made the journey by herself. Besides, she had her song for walking through the woods, and she had her backpack, and a map. She made plenty of peanut butter sandwiches, and packed a bottle of water. And as she hiked through the forest, Stephie sang and sang, which made the journey go quickly."
 
-"What a good idea. She sounds like quite a clever little girl."
+Henry dabbed at his forehead with the back of his hat. "Still, it sounds like it might have been awfully scary for Stephie."
 
 Sophie shrugged. She had just about finished putting the last few leaves into the paper bag, and at the bottom of the pile she had found an acorn, a perfectly formed little nut, and had decided to try to prise off the cap with her fingernail.
 
@@ -122,7 +122,7 @@ It was just after Sophie's second birthday, a little before Easter, that Sylvie 
 
 They had finished rolling out the dough and Sophie still had not mentioned the ending to her story. Henry had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
 
-With the table still covered in flour, he finally gave in to his curiosity. "So, Poppet, I suppose that the sorceress must have had a magic potion for Stephie - and that's how she got her climbing song back. Right?"
+With the table still covered in flour, he finally gave in to his curiosity. "I think I know what must have happened next, Poppet. The sorceress had a magic potion for Stephie, and that is how she got her climbing song back. Right?"
 
 "Oh, Papa." Sophie bit her lip as she carefully pushed the rolling pin over the dough one more time. "This is my story, remember? You can't just go making things up like that. The sorceress didn't have a potion for Stephie. In fact she didn't have any potions at all!"
 
@@ -130,15 +130,15 @@ With the table still covered in flour, he finally gave in to his curiosity. "So,
 
 "Well, a sorceress who lives in the middle of a vast forest, of course. She must have been too busy helping little girls with their problems to bother brewing up potions."
 
-"I see." Henry picked up the dough that Sophie had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Sophie, and they both began spooning the sticky mulberry jam into the pie. "So then - what did Stephie do? Was the sorceress able to help her at all?"
+Henry picked up the dough that Sophie had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Sophie, and they both began spooning the sticky mulberry jam into the pie. "This story is very strange, Sophie. Was the sorceress able to help poor Stephie at all?"
 
 "Well, the sorceress taught Stephie an enchanted tune, you see. And she told Stephie that if she hummed that tune and thought of her climbing song, then she would remember the words to the song after all."
 
-"How marvelous!" Henry felt the door of the oven, to check that it was warm enough for the pie. "So Stephie was able to remember the lyrics, after all?"
+Henry frowned, and decided better than to object. He walked over to the overn, felt the door to check that it was warm enough for the pie. "So Stephie was able to remember the lyrics, after all?"
 
 "Well, yes, but there was a problem. Because after Stephie returned from the forest, she tried what the sorceress had told her. And she found that she could remember the words, perfectly. But she had forgotten to ask the sorceress one other thing."
 
-Henry carefully set the pie in the oven, and removed his oven mitts. "What was that?"
+Henry carefully set the pie in the oven, and removed the oven mitts. He held his breath before asking, "What was that?"
 
 Sophie licked at a bit of jam on her thumb. "How to climb a tree! Stephie had forgotten how to climb a tree. When she got back home she found that she could sing her song perfectly well, but she didn't know what to do while singing it."
 
@@ -196,7 +196,7 @@ That night, after putting Sophie to bed, he had opened a bottle of wine, present
 
 ***
 
-Henry sat on the edge of the bed, Sophie lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in. There they lay in the corner, underneath the director's chair with her name monogrammed in big, swoopy letters on the back.
+Henry sat on the edge of the bed, Sophie lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in. There they lay in the corner, underneath the child-size director's chair with her name monogrammed in big, swoopy letters on the back.
 
 "I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Stephie's climbing song?"
 
