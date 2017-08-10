@@ -14,7 +14,7 @@ Sophie did not looking up from her coloring. Before her, a line drawing of a bun
 
 Sophie set down the crayon and carefully considered her drawing. She blew softly on the paper, scattering the crayon shavings, before picking up the forest green to finish the tufts of grass at the bunny's feet. "Before you turned on the radio, I suppose. Why should that make me sad?"
 
-Saturdays alone with Sophie were a delight he had not anticipated. When Sylvie had first announced her rigorous travel schedule, one week a month over the course of an entire year, it had seemed that these weekends would stretch on forever, the need to chase after Sophie and keep her entertained all day. But after a few weekends he found that they passed almost too quickly, that Sophie's nonstop chatter kept him endlessly fascinated, even if she never seemed to pick up her toys. With Sylvie's travel schedule winding down, this weekend would be their last alone, certainly for a long while. Soon enough it would be his wife answering these mystifying questions.
+Henry gave the pan a final rinse, studied his reflection in the stainless steel, as though the answer to his daughter's question might reside there.
 
 "Are you saying that the song made you sad, is that it?" Henry plucked Sophie's plate from off the table, taking care not to drop the fork on her drawing.
 
@@ -26,7 +26,7 @@ Sophie regarded him for a moment, then exhaled a little puff of air. "Of course,
 
 ***
 
-The ground was still a little damp from rain earlier in the week, and so the soil yielded easily to the spade. Henry turned the dirt over, created a little mound, and pressed his thumb into the top.
+The ground was still a little damp from rain earlier in the week; the planting project would go very quickly. Henry dug another hole, prepared a little bed of soil.
 
 "I'm ready for another seed, Poppet."
 
@@ -48,7 +48,7 @@ That was Sylvie's favorite game with Sophie, to make up silly stories all day lo
 
 Sophie took a breath and then sat down on the ground. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
 
-"Sounds like Stephie must have had a real talent, right Sophie?" Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair of sneakers.
+"Sounds like Stephie must have had a real talent." Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair of sneakers.
 
 "Oh yes. Stephie was the best singer in her whole school, in the whole town even."
 
@@ -70,15 +70,30 @@ Then Sophie was born, and everything changed.
 
 At the edge of the yard stood a line of oak trees, stout old things that had been there since they had bought the house, and probably many years before that. Any day now, the leaves would turn a lazy shade of yellow. But already a few strays were starting to flutter off the branches, one or two or three at a time.
 
-Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little. "I wonder if this was one of Stephie's songs," Sophie said, burying her hands in the vast pile of leaves, crunching them through her fingers. "Only she must have known the words."
+Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little.
 
-"You mean the lyrics? I didn't even realize that there were any. I thought that you were just humming a simple tune." Henry paused for a minute and leaned against the rake, dabbing at his forehead with the back of his hat.
+"Are you singing one of Stephie's songs, Poppet?"
 
-Sophie dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "No. Stephie would have known the words. She knew the words to every song."
+Stephie buried her hands in the vast pile of leaves, crunching them through her fingers. "I suppose so, Papa. I think this was one of her songs. Only she must have known the words."
 
-"She must have known quite a few songs, then."
+"You mean the lyrics? I didn't even realize that there were any. I thought it was just a simple tune." Henry paused for a minute and leaned against the rake, dabbing at his forehead with the back of his hat.
 
-"Many, many songs. More than you could count, Papa. She had a song for every possible thing she wanted to do: one for reading a book, another for eating dinner, a third one for playing with her dog, and so on. But that was the problem. One day while she was climbing a tree, she found that she couldn't remember the words to the song she was singing."
+Sophie dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "Well, maybe you and I don't know the words, but I'm sure that Stephie would have. She knew the words to every song."
+
+"Wow. That is quite a few songs!"
+
+"Many, many songs. More than you could count, Papa. She knew all the words because she had a song for every possible thing she wanted to do: one for reading a book, another for eating dinner, a third one for playing with her dog, and so on. So, she must have known lots and lots of songs."
+
+"When you explain it like that, it makes perfect sense. So was this her song for picking up leaves?"
+
+Sophie picked up a single dried leaf, twirled it by the stem. "Hmm. Yes, of course it must have been! But now I wonder why it is that we no longer know the words."
+
+"Maybe Stephie forgot them." Henry had gone back to raking, pulling together one last pile from the leaves on the far side of the yard.
+
+
+
+
+ But that was the problem. One day while she was climbing a tree, she found that she couldn't remember the words to the song she was singing."
 
 "Oh dear. Couldn't she just choose another one?"
 
