@@ -80,20 +80,19 @@ Stephie buried her hands in the vast pile of leaves, crunching them through her 
 
 Sophie dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "Well, maybe you and I don't know the words, but I'm sure that Stephie would have. She knew the words to every song."
 
-"Wow. That is quite a few songs!"
+"Wow. That's a lot of songs!"
 
 "Many, many songs. More than you could count, Papa. She knew all the words because she had a song for every possible thing she wanted to do: one for reading a book, another for eating dinner, a third one for playing with her dog, and so on. So, she must have known lots and lots of songs."
 
 "When you explain it like that, it makes perfect sense. So was this her song for picking up leaves?"
 
-Sophie picked up a single dried leaf, twirled it by the stem. "Hmm. Yes, of course it must have been! But now I wonder why it is that we no longer know the words."
+Sophie picked up a single dried leaf, twirled it by the stem. "Hmm. Yes, it must have been! But now I wonder why it is that we no longer know the words."
 
 "Maybe Stephie forgot them." Henry had gone back to raking, pulling together one last pile from the leaves on the far side of the yard.
 
+Sophie wandered up to one of the oaks at the side of the yard, touched her fingertips to its cobbled bark. She looked down to the roots, and then up to the highest branches.
 
-
-
- But that was the problem. One day while she was climbing a tree, she found that she couldn't remember the words to the song she was singing."
+"I think there was another song that she forgot, first. You see, one day while Stephie was climbing a tree, she found that she couldn't remember the words to the song she was singing."
 
 "Oh dear. Couldn't she just choose another one?"
 
@@ -101,11 +100,11 @@ Sophie picked up a single dried leaf, twirled it by the stem. "Hmm. Yes, of cour
 
 "I hadn't really thought of that, I suppose." Henry went back to raking, and Sophie picked up another little pile of leaves to drop in the bag. "Well then: how did Stephie get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
 
-Sophie rubbed her nose with the back of her hand a little. "She couldn't, of course. Stephie didn't know how to climb without singing. And she couldn't sing the song if she didn't know the words. Fortunately she hadn't climbed very far, so she simply jumped out of the tree."
+Sophie rubbed her nose with the back of her hand a little, and began collecting leaves from the last little pile. "She couldn't, of course. Stephie didn't know how to climb without singing. And she couldn't sing the song if she didn't know the words. Fortunately she hadn't climbed very far, so she simply jumped out of the tree."
 
-"Well, I suppose that solved the problem, then."
+"Well, I'm glad she got out of the tree."
 
-"No, not at all! Stephie still wanted to climb trees. But try as she might, she couldn't remember the words. She asked her friends, and her teachers, and her parents, she even asked the dog. But no one could help her."
+"Yes, but Papa - Stephie still wanted to climb trees! She just couldn't remember the words. She asked her friends, and her teachers, and her parents, she even asked the dog. But no one could help her."
 
 "So then, what did she do?"
 
