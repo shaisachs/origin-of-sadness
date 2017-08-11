@@ -166,7 +166,11 @@ The pie was nearly done. Henry still sat at the kitchen table, staring out the w
 
 "Very, very sad, Papa."
 
-"Did I ever tell you about the first dance at our wedding?"
+"Even though Stephie never climbed another tree - do you suppose she did other things?"
+
+Stephie placed her chin in her hand, studying the afternoon sun reflected on the table top as though it might help her explain something very simple. "Papa, Stephie did many, many other things. She knew all of those songs, remember? And she must have learned more, as she grew older."
+
+Henry smiled thinly, wrapped his knuckles on the table once. "Did I ever tell you about the first dance at our wedding?"
 
 Sophie shook her head mid-sip, dribbling a bit of milk down her chin.
 
@@ -194,7 +198,9 @@ This film would be Sylvie's fifth, and the riskiest project yet. It was somethin
 
 It seemed like ages ago, when Henry had discovered the script for the film. There on the shelf in the laundry room, he had found a stack of typed pages rolled into a tube, held together by a rubber band. Sylvie had taken Sophie on an errand run, and wouldn't be back for several hours. He had unrolled the thick bundle and started to read. Some pages were heavily scarred with red ink, others with just a couple of inscrutable underlines and question marks. A scene towards the end of the screenplay had caught his eye, a few lines of dialogue circled three or four times over. In the margin, a cartoon drawing of a girl with buggy eyes and a slightly upturned nose that could only be his daughter.
 
-That night, after putting Sophie to bed, he had opened a bottle of wine, presented a half-full glass to Sylvie with one hand, and the rolled up manuscript with the other. Casting a star with wide appeal, one who looked something like a grown-up Sophie, had been Sylvie's idea. It had been Henry who encouraged her to seek investors from her old contacts in publishing. The movie would be theirs.
+That night, after putting Sophie to bed, he had opened a bottle of wine, presented a half-full glass to Sylvie with one hand, and the rolled up manuscript with the other.
+
+Sylvie, it turned out, had sketched out a tremendous plan for this film - extravagant sets, innovative scenes, a handful of big-name stars. It had been Henry who encouraged her to seek investors from her old contacts in publishing. That was a short couple of years ago; now, Sylvie's sketch was nearly complete.
 
 ***
 
