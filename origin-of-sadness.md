@@ -136,25 +136,19 @@ With the table still covered in flour, he finally gave in to his curiosity. "And
 
 "What sort of sorceress doesn't have a magic potion?"
 
-"Well, a sorceress who lives in the middle of a vast forest, of course. She must have been too busy helping little girls with their problems to bother brewing up potions."
+"Well, this sorceress must have been too busy helping little girls with their problems to bother brewing up potions."
 
 "I see." Henry picked up the dough that Sophie had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Sophie, and they both began spooning the sticky mulberry jam into the pie. "So then - what did Stephie do? Was the sorceress able to help her at all?"
 
-"Well, the sorceress taught Stephie an enchanted tune, you see. And she told Stephie that if she hummed that tune and thought of her climbing song, then she would remember the words to the song after all."
+"Well, the sorceress told Sophie that there was an enchanted pond at the edge of the forest. She told Stephie that she would be able to remember the words, if she went to the pond. So, Stephie went to the pond, and she sat down at the edge. At first the waters were very muddy, but after a few minutes they cleared up. And in the water of the pond she could see herself climbing a tree!"
 
-"How marvelous!" Henry felt the door of the oven, to check that it was warm enough for the pie. "So Stephie was able to remember the lyrics, after all?"
+"How marvelous!" Henry felt the door of the oven, to check that it was warm enough for the pie. "So once she saw herself in the water - Stephie was able to remember the lyrics, after all?" He carefully set the pie in the oven, and removed his oven mitts.
 
-"Well, yes, but there was a problem. Because after Stephie returned from the forest, she tried what the sorceress had told her. And she found that she could remember the words, perfectly. But she had forgotten to ask the sorceress one other thing."
+"Yes. Stephie saw herself climbing and remembered the lyrics, just as they had been before. But then the waters grew cloudy again. And she found that while she still knew the words to the song, she couldn't remember how to climb a tree."
 
-Henry carefully set the pie in the oven, and removed his oven mitts. "What was that?"
+Henry sighed, grabbed a chair from the table, and sat down heavily. He looked down at the linoleum floo, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink. "Maybe she could go back to the sorceress, and ask her for some help?"
 
-Sophie licked at a bit of jam on her thumb. "How to climb a tree! Stephie had forgotten how to climb a tree. When she got back home she found that she could sing her song perfectly well, but she didn't know what to do while singing it."
-
-Henry sighed, grabbed a chair from the table, and sat down heavily. He looked down at the linoleum floor instead, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink.
-
-"Well - couldn't Stephie just return to the sorceress? To ask her how to climb a tree?"
-
-"She tried that, of course. But she couldn't find the way any more. She would go in to the forest, certain she knew the way, and just wind up walking in circles. One time she thought maybe she had found the right path - but there was no trace of the sorceress's house, when she got to the clearing. She never found it again, and she never climbed another tree."
+Sophie licked at a bit of jam on her thumb. "She tried that, of course. But she couldn't find the way any more. She would go in to the forest, certain she remembered, and just wind up walking in circles. One time she thought maybe she had found the right path - but there was no trace of the sorceress's house, when she got to the clearing. She never found it again, and she never climbed another tree."
 
 ***
 
@@ -210,14 +204,14 @@ Henry sat on the edge of the bed, Sophie lying on her pillow in Beatrix Potter p
 
 "Perhaps. Or maybe it was just another song, with the same tune."
 
-He tried to remember what it was they had listened to on the radio, attempted to whistle it. "Like that? Was that Sophie's tune, Poppet?"
+Henry stood up and paced for a bit, watching his daughter from the mirror above her dresser. He tried to remember what it was they had listened to on the radio, attempted to whistle it. "Like that? Was that Sophie's tune, Poppet?"
 
 Sophie smiled, her eyelids heavy. "Yes, I think that must have been it, Papa. Only - don't call me Poppet, please."
 
-Henry winced, but Sophie hadn't seen it; her eyes were already closed. "Why not ... Sophie?"
+Henry winced, but Sophie hadn't seen it; her eyes were already closed. "Why not?" he asked, slowly enunciating the sounds.
 
 "Well, I'm not really your puppet, am I?" She had turned over, facing the lamp on her bedside table, and pulled the chain to turn it off. "I'm just your Sophie, you see."
 
-Henry stood up, paced back and forth between the door for a moment. Finally he sighed, opened the door, and stepped out.
+He walked to the door, hesitated for a moment for a moment. Finally he sighed and stepped out.
 
 "Very well, Sophie. Sweet dreams."
