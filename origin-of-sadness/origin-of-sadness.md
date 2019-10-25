@@ -46,13 +46,13 @@ That was Sylvia's favorite game with Holly, to make up silly stories all day lon
 
 "Oh, Papa, you're telling it wrong!" Holly stretched her feet upwards, standing on her toes for a moment, and it was only then that Henry realized she had worn her new shoes for the afternoon's chores.
 
-Holly took a breath and then sat down on the ground. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
+Holly took a breath and then sat down on the ground. "The story starts like this: 'Once upon a time, there was a little girl named... Penny. Penny loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
 
-"Sounds like Stephie must have had a real talent." Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair, so far.
+"Sounds like Penny must have had a real talent." Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair, so far.
 
-"Oh yes. Stephie was the best singer in her whole school, in the whole town even."
+"Oh yes. Penny was the best singer in her whole school, in the whole town even."
 
-"Well, that is a lovely story. Did Stephie invent the very first sad song, is that it?" Henry gathered all the little rocks they had unearthed from the garden into a little pile, and left it by the side of the garden.
+"Well, that is a lovely story. Did Penny invent the very first sad song, is that it?" Henry gathered all the little rocks they had unearthed from the garden into a little pile, and left it by the side of the garden.
 
 "Well, there's more to the story, of course. We haven't even reached the middle yet!" Holly's arms extended behind her, fists pressing into the ground for support. She had crushed the packet of seeds into a ball.
 
@@ -64,13 +64,13 @@ At the edge of the yard stood a line of oak trees, stout old things that had bee
 
 Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Holly grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of shoes for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little.
 
-"Are you singing one of Stephie's songs, Poppet?"
+"Are you singing one of Penny's songs, Poppet?"
 
-Stephie buried her hands in the vast pile of leaves, crunching them through her fingers. "I suppose so, Papa. I think this was one of her songs. Only she must have known the words."
+Penny buried her hands in the vast pile of leaves, crunching them through her fingers. "I suppose so, Papa. I think this was one of her songs. Only she must have known the words."
 
 "You mean the lyrics? I didn't even realize that there were any. I thought it was just a simple tune." Henry paused for a minute and leaned against the rake, dabbing at his forehead with the back of his hat.
 
-Holly dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "Well, maybe you and I don't know the words, but I'm sure that Stephie would have. She knew the words to every song."
+Holly dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "Well, maybe you and I don't know the words, but I'm sure that Penny would have. She knew the words to every song."
 
 "Wow. That's a lot of songs!"
 
@@ -80,31 +80,31 @@ Holly dropped the leaves she had gathered into the bag, wiping her hands against
 
 Holly picked up a single dried leaf, twirled it by the stem. "Hmm. Yes, it must have been! But now I wonder why it is that we no longer know the words."
 
-"Maybe Stephie forgot them." Henry had gone back to raking, pulling together one last pile from the leaves on the far side of the yard.
+"Maybe Penny forgot them." Henry had gone back to raking, pulling together one last pile from the leaves on the far side of the yard.
 
 Holly wandered up to one of the oaks at the side of the yard, touched her fingertips to its cobbled bark. She looked down to the roots, and then up to the highest branches.
 
-"I think there was another song that she forgot, first. You see, one day while Stephie was climbing a tree, she found that she couldn't remember the words to the song she was singing."
+"I think there was another song that she forgot, first. You see, one day while Penny was climbing a tree, she found that she couldn't remember the words to the song she was singing."
 
 "Oh dear. Couldn't she just choose another one?"
 
-"What a strange idea. How would Stephie be able to climb a tree while singing a song that was meant for something else, like chopping vegetables?"
+"What a strange idea. How would Penny be able to climb a tree while singing a song that was meant for something else, like chopping vegetables?"
 
-"I hadn't really thought of that, I suppose." Henry went back to raking, and Holly picked up another little pile of leaves to drop in the bag. "Well then: how did Stephie get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
+"I hadn't really thought of that, I suppose." Henry went back to raking, and Holly picked up another little pile of leaves to drop in the bag. "Well then: how did Penny get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
 
-Holly rubbed her nose with the back of her hand a little, and began collecting leaves from the last little pile. "She couldn't, of course. Stephie didn't know how to climb without singing. And she couldn't sing the song if she didn't know the words. Fortunately she hadn't climbed very far, so she simply jumped out of the tree."
+Holly rubbed her nose with the back of her hand a little, and began collecting leaves from the last little pile. "She couldn't, of course. Penny didn't know how to climb without singing. And she couldn't sing the song if she didn't know the words. Fortunately she hadn't climbed very far, so she simply jumped out of the tree."
 
 "Well, I'm glad she got out of the tree."
 
-"Yes, but Papa - Stephie still wanted to climb trees! She just couldn't remember the words. She asked her friends, and her teachers, and her parents, she even asked the dog. But no one could help her."
+"Yes, but Papa - Penny still wanted to climb trees! She just couldn't remember the words. She asked her friends, and her teachers, and her parents, she even asked the dog. But no one could help her."
 
 "So then, what did she do?"
 
-"Well, there was a great and powerful sorceress, who lived in the middle of a vast forest. Stephie decided that she should visit the sorceress, to see whether the sorceress had a potion which could help her memory."
+"Well, there was a great and powerful sorceress, who lived in the middle of a vast forest. Penny decided that she should visit the sorceress, to see whether the sorceress had a potion which could help her memory."
 
-"That must have been very brave of Stephie."
+"That must have been very brave of Penny."
 
-"Well, she had her song for walking through the woods, and she had her backpack, and a map. She made plenty of peanut butter sandwiches, and packed a bottle of water. And as she hiked through the forest, Stephie sang and sang, which made the journey go quickly."
+"Well, she had her song for walking through the woods, and she had her backpack, and a map. She made plenty of peanut butter sandwiches, and packed a bottle of water. And as she hiked through the forest, Penny sang and sang, which made the journey go quickly."
 
 "What a good idea. She sounds like quite a clever little girl."
 
@@ -114,21 +114,21 @@ Holly shrugged. She had just about finished putting the last few leaves into the
 
 They had finished rolling out the dough and Holly still had not mentioned the ending to her story. Henry had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
 
-With the table still covered in flour, he finally gave in to his curiosity. "And so, Poppet? What happened when Stephie finally found the sorceress? Did she get her magic potion?"
+With the table still covered in flour, he finally gave in to his curiosity. "And so, Poppet? What happened when Penny finally found the sorceress? Did she get her magic potion?"
 
-"Oh, no, Papa," Holly responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have a potion for Stephie. In fact she didn't have any potions at all!"
+"Oh, no, Papa," Holly responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have a potion for Penny. In fact she didn't have any potions at all!"
 
 "What sort of sorceress doesn't have a magic potion?"
 
 "Well, this sorceress must have been too busy helping little girls with their problems to bother brewing up potions."
 
-"I see." Henry picked up the dough that Holly had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Holly, and they both began spooning the sticky mulberry jam into the pie. "So then - what did Stephie do? Was the sorceress able to help her at all?"
+"I see." Henry picked up the dough that Holly had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Holly, and they both began spooning the sticky mulberry jam into the pie. "So then - what did Penny do? Was the sorceress able to help her at all?"
 
-"Well, the sorceress told Holly that there was an enchanted pond at the edge of the forest. She told Stephie that she would be able to remember the words, if she went to the pond. So, Stephie went to the pond, and she sat down at the edge. At first the waters were very muddy, but after a few minutes they cleared up. And in the water of the pond she could see herself climbing a tree!"
+"Well, the sorceress told Holly that there was an enchanted pond at the edge of the forest. She told Penny that she would be able to remember the words, if she went to the pond. So, Penny went to the pond, and she sat down at the edge. At first the waters were very muddy, but after a few minutes they cleared up. And in the water of the pond she could see herself climbing a tree!"
 
-"How marvelous!" Henry felt the door of the oven, to check that it was warm enough for the pie. "So once she saw herself in the water - Stephie was able to remember the lyrics, after all?" He carefully set the pie in the oven, and removed his oven mitts.
+"How marvelous!" Henry felt the door of the oven, to check that it was warm enough for the pie. "So once she saw herself in the water - Penny was able to remember the lyrics, after all?" He carefully set the pie in the oven, and removed his oven mitts.
 
-"Yes. Stephie saw herself climbing and remembered the lyrics, just as they had been before. But then the waters grew cloudy again. And she found that while she still knew the words to the song, she couldn't remember how to climb a tree."
+"Yes. Penny saw herself climbing and remembered the lyrics, just as they had been before. But then the waters grew cloudy again. And she found that while she still knew the words to the song, she couldn't remember how to climb a tree."
 
 Henry sighed, grabbed a chair from the table, and sat down heavily. He looked down at the linoleum floo, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Holly's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink. "Maybe she could go back to the sorceress, and ask her for some help?"
 
@@ -142,9 +142,9 @@ The pie was nearly done. Henry still sat at the kitchen table, staring out the w
 
 "Very, very sad, Papa."
 
-"Even though Stephie never climbed another tree - do you suppose she did other things?"
+"Even though Penny never climbed another tree - do you suppose she did other things?"
 
-Stephie placed her chin in her hand, studying the afternoon sun reflected on the table top as though it might help her explain something very simple. "Papa, Stephie did many, many other things. She knew all of those songs, remember? And she must have learned more, as she grew older."
+Penny placed her chin in her hand, studying the afternoon sun reflected on the table top as though it might help her explain something very simple. "Papa, Penny did many, many other things. She knew all of those songs, remember? And she must have learned more, as she grew older."
 
 Henry smiled thinly, wrapped his knuckles on the table once. "Did I ever tell you about the first dance at our wedding?"
 
@@ -172,7 +172,7 @@ Henry caught a swinging foot under the table, and gave a little squeeze. "Someth
 
 Henry sat on the edge of the bed, Holly lying on her pillow in pajamas. She had remembered, thank goodness, to take her shoes off before climbing in.
 
-"I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Stephie's climbing song?"
+"I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Penny's climbing song?"
 
 "Perhaps. Or maybe it was just another song, with the same tune."
 
