@@ -110,6 +110,18 @@ Holly rubbed her nose with the back of her hand a little, and began collecting l
 
 Holly shrugged. She had just about finished putting the last few leaves into the paper bag, and at the bottom of the pile she had found an acorn, a perfectly formed little nut, and had decided to try to prise off the cap with her fingernail.
 
+Jonah waited another moment, but his daughter appeared lost in thought.
+
+"Poppet?"
+
+"Yes, Papa?"
+
+"What happened when Penny found the sorceress?"
+
+"Oh, yes. Of course."
+
+***
+
 ***
 
 They had finished rolling out the dough and Holly still had not mentioned the ending to her story. Jonah had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
