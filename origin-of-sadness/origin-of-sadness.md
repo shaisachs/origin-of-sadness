@@ -136,7 +136,7 @@ It was just as she opened her eyes, and was about to ask about the song, that sh
 
 The next day was the same, and the next after that, and so on for quite some time: Penny awoke each morning to the smell of gingerbread, ate a slice, but could not remember the words to her song. The peppery note in the sorceress's gingerbread never went away - some days it was stronger, and some days weaker, but always it was there, hiding in the center of the slice.
 
-And so it went, until one day Penny awoke earlier than usual, and there was no gingerbread smell in the house. In the kitchen, the girl found the old sorceress preparing the morning's bread. "Aunty," she pleaded, for the two were now good friends, "may I help with the baking?"
+And so it went, until one day Penny awoke earlier than usual, and there was no gingerbread smell in the house. In the kitchen, the girl found the old sorceress preparing the morning's bread. "Auntie" she pleaded, for the two were now good friends, "may I help with the baking?"
 
 The sorceress looked up from her work, as though she had been expecting Penny all morning. "But of course my dear - you may blend the spices." And she nodded her head toward the jars of spices huddled in one corner of the counter. A dove had settled on the ledge of the kitchen window, overseeing the operation from its perch. Carefully Penny measured out the cinnamon, nutmeg, allspice, and cardamom, until she found only one jar left. It was a curious little jar, made of black glass, marked with nothing but a piece of tape. The dove tilted its head in curiosity. Penny understood that she must add the contents of that jar - but what was inside? She dared not taste it, though she did not know why.
 
@@ -150,25 +150,15 @@ One day, when Penny awoke, the sorceress was gone.
 
 They had finished rolling out the dough and Holly still had not mentioned the ending to her story. Jonah had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
 
-With the table still covered in flour, he finally gave in to his curiosity. "And so, Poppet? What happened when Penny finally found the sorceress? Did she get her magic potion?"
+With the table still covered in flour, he finally gave in to his curiosity. "And so, Poppet? What happened to Penny? Did she ever remember the lyrics to her song?"
 
-"Oh, no, Papa," Holly responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have a potion for Penny. In fact she didn't have any potions at all!"
+"Oh, no, Papa," Holly responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "No, the words were gone forever."
 
-"What sort of sorceress doesn't have a magic potion?"
+"And the sorceress? Where did she go, and why didn't she help Penny?"
 
-"Well, this sorceress must have been too busy helping little girls with their problems to bother brewing up potions."
+"But Papa, don't you see? Penny had become the sorceress. She was the one making the gingerbread. A new kind of gingerbread." Holly stuck her finger in to the bowl of mulberry pie filling, and helped herself to a generous, sticky taste. "That was how the sorceress helped Penny."
 
-"I see." Jonah picked up the dough that Holly had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Holly, and they both began spooning the sticky mulberry jam into the pie. "So then - what did Penny do? Was the sorceress able to help her at all?"
-
-"Well, the sorceress told Holly that there was an enchanted pond at the edge of the forest. She told Penny that she would be able to remember the words, if she went to the pond. So, Penny went to the pond, and she sat down at the edge. At first the waters were very muddy, but after a few minutes they cleared up. And in the water of the pond she could see herself climbing a tree!"
-
-"How marvelous!" Jonah felt the door of the oven, to check that it was warm enough for the pie. "So once she saw herself in the water - Penny was able to remember the lyrics, after all?" He carefully set the pie in the oven, and removed his oven mitts.
-
-"Yes. Penny saw herself climbing and remembered the lyrics, just as they had been before. But then the waters grew cloudy again. And she found that while she still knew the words to the song, she couldn't remember how to climb a tree."
-
-Jonah sighed, grabbed a chair from the table, and sat down heavily. He looked down at the linoleum floo, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Holly's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink. "Maybe she could go back to the sorceress, and ask her for some help?"
-
-Holly licked at a bit of jam on her thumb. "She tried that, of course. But she couldn't find the way any more. She would go in to the forest, certain she remembered, and just wind up walking in circles. One time she thought maybe she had found the right path - but there was no trace of the sorceress's house, when she got to the clearing. She never found it again, and she never climbed another tree."
+"Hmmm." Jonah picked up the dough that Holly had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Holly, and they both began spooning the filling into the pie.
 
 ***
 
