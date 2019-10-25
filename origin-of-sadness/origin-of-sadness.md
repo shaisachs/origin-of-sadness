@@ -118,7 +118,7 @@ Jonah waited another moment, but his daughter appeared lost in thought.
 
 "What happened when Penny found the sorceress?"
 
-"Oh, yes. Of course."
+"Oh, yes. The rest of the story! Of course."
 
 ***
 
@@ -176,7 +176,7 @@ The pie was baking in the oven; soon it would be finished. Jonah still sat at th
 
 "Even if Penny never climbed another tree - do you suppose she did other things?"
 
-Holly rested her chin in her hand, studying the afternoon sun reflected on the table top as though it might help her explain something very simple. "Papa, Penny did many, many other things. She read books, she skipped rope, I suppose she must have fed the birds outside the kitchen window. She knew all of those songs, remember? And she must have learned more, as she grew older."
+Holly rested her chin in her hand, studying the afternoon sun reflected on the table top as though it might help her explain something very simple. "Papa, Penny did many, many other things. She read books, she built fires, I suppose she must have fed the birds outside the kitchen window. She knew all of those songs, remember? And she must have learned more, as she grew older. She had a new house now, and that meant she had many new songs - even if the old one was gone."
 
 Jonah smiled thinly, wrapped his knuckles on the table once. "Did I ever tell you about the first dance at our wedding?"
 
