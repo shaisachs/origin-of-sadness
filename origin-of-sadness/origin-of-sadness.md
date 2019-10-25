@@ -104,7 +104,7 @@ Holly rubbed her nose with the back of her hand a little, and began collecting l
 
 "That must have been very brave of Penny."
 
-"Well, she had her song for walking through the woods, and she had her backpack, and a map. She made plenty of peanut butter sandwiches, and packed a bottle of water. And as she hiked through the forest, Penny sang and sang, which made the journey go quickly."
+"Well, yes. But she had her song for walking through the woods. And as she hiked through the forest, Penny sang and sang, which made the journey go quickly. She even stopped every now and then to leave some breadcrumbs on the trail, so that she'd know how to get back home."
 
 "What a good idea. She sounds like quite a clever little girl."
 
