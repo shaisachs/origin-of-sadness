@@ -4,17 +4,17 @@
 
 Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Holly was born. From the folk duet on the radio, the guitar picked out a shaky complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
 
-"Why, Poppet - it must be because Mama isn't home. Don't worry - she'll be home next Friday. Now, could you bring me your plate, please?"
+"Why, Poppet - is it because of Mama?"
 
 Holly did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
 
-"I know Mama isn't home. She's been gone for a whole day now. And I'm not worried - every time she leaves she returns. But why am I sad just this moment, Papa? I wasn't sad before."
+"I know Mama isn't here. I've knew that yesterday, and I knew that this morning, and I'll know that tonight. But why am I sad just this moment, Papa? I wasn't sad before."
 
-"Before what?" He had resumed working on the pan. A bit of cheese had been burnt in place on the bottom, and wouldn't scrape off even though it had sat soaking throughout lunch.
+"Before what?" He had resumed working on the pan, to occupy his hands. Something had burnt in place on the bottom, and wouldn't scrape off even though it had sat soaking throughout lunch.
 
 Holly set down the crayon and carefully considered her drawing. She blew softly on the paper, scattering the crayon shavings, before picking up the forest green to finish the tufts of grass at the bunny's feet. "Before you turned on the radio, I suppose. Why should that make me sad?"
 
-Henry gave the pan a final rinse, studied his reflection in the stainless steel, as though the answer to his daughter's question might reside there.
+Henry gave the pan a final rinse, studied his reflection in the silverish metal, as though the answer to his daughter's question might reside there.
 
 "Are you saying that the song made you sad, is that it?" Henry plucked Holly's plate from off the table, taking care not to drop the fork on her drawing.
 
