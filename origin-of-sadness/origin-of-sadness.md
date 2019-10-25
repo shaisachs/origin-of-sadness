@@ -2,7 +2,7 @@
 
 "Papa," Holly asked, "why am I sad?"
 
-Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Holly was born. From the folk duet on the radio, the guitar picked out a shaky complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
+Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Holly was born. From the duet on the radio, the guitar picked out a shaky complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
 
 "Why, Poppet - is it because of Mama?"
 
@@ -44,11 +44,11 @@ That was Sylvia's favorite game with Holly, to make up silly stories all day lon
 
 "Well then, I'll do my best." Henry set his spade down on the ground, and sat back on his haunches. How did every good story begin? "Once upon a time, there was a good, wise king, who ruled over a vast kingdom..."
 
-"Oh, Papa, you're telling it wrong!" Holly stretched her feet upwards, standing on her toes for a moment, and it was only then that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or, they had been yesterday - with a streak of purple on both sides. The heels were made of tiny red lights that flashed whenever Holly took a step.
+"Oh, Papa, you're telling it wrong!" Holly stretched her feet upwards, standing on her toes for a moment, and it was only then that Henry realized she had worn her new shoes for the afternoon's chores.
 
 Holly took a breath and then sat down on the ground. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
 
-"Sounds like Stephie must have had a real talent." Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair of sneakers.
+"Sounds like Stephie must have had a real talent." Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair, so far.
 
 "Oh yes. Stephie was the best singer in her whole school, in the whole town even."
 
@@ -62,7 +62,7 @@ Holly took a breath and then sat down on the ground. "The story starts like this
 
 At the edge of the yard stood a line of oak trees, stout old things that had been there since they had bought the house, and probably many years before that. Any day now, the leaves would turn a lazy shade of yellow. But already a few strays were starting to flutter off the branches, one or two or three at a time.
 
-Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Holly grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little.
+Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Holly grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of shoes for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little.
 
 "Are you singing one of Stephie's songs, Poppet?"
 
@@ -170,7 +170,7 @@ Henry caught a swinging foot under the table, and gave a little squeeze. "Someth
 
 ***
 
-Henry sat on the edge of the bed, Holly lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in. There they lay in the corner, underneath the director's chair with her name monogrammed in big, swoopy letters on the back.
+Henry sat on the edge of the bed, Holly lying on her pillow in pajamas. She had remembered, thank goodness, to take her shoes off before climbing in.
 
 "I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Stephie's climbing song?"
 
@@ -182,7 +182,7 @@ Holly smiled, her eyelids heavy. "Yes, I think that must have been it, Papa. Onl
 
 Henry winced, but Holly hadn't seen it; her eyes were already closed. "Why not?" he asked, slowly enunciating the sounds.
 
-"Well, I'm not really your puppet, am I?" She had turned over, facing the lamp on her bedside table, and pulled the chain to turn it off. "I'm just your Holly, you see."
+"Well, I'm not really your puppet, am I?" She had turned over, closed her eyes and buried her face in her pillow. "I'm just your Holly, you see."
 
 He walked to the door, hesitated for a moment for a moment. Finally he sighed and stepped out.
 
