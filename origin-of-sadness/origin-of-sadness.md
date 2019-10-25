@@ -156,7 +156,7 @@ They had finished rolling out the dough and Holly still had not mentioned the en
 
 With the table still covered in flour, he finally gave in to his curiosity. "And so, Poppet? What happened to Penny? Did she ever remember the lyrics to her song?"
 
-"Oh, no, Papa," Holly responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "No, the words were gone forever."
+"Oh, no, Papa," Holly responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "No, the words were gone forever. But she never forgot the tune."
 
 "And the sorceress? Where did she go, and why didn't she help Penny?"
 
@@ -174,7 +174,7 @@ The pie was baking in the oven; soon it would be finished. Jonah still sat at th
 
 "Very, very sad, Papa."
 
-"Even though Penny never climbed another tree - do you suppose she did other things?"
+"Even if Penny never climbed another tree - do you suppose she did other things?"
 
 Holly rested her chin in her hand, studying the afternoon sun reflected on the table top as though it might help her explain something very simple. "Papa, Penny did many, many other things. She read books, she skipped rope, I suppose she must have fed the birds outside the kitchen window. She knew all of those songs, remember? And she must have learned more, as she grew older."
 
