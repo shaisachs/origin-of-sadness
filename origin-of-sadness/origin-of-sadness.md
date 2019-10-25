@@ -8,7 +8,7 @@ Jonah's hands went on scrubbing the pan for a moment. Outside the kitchen window
 
 Holly did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
 
-"I know Mama isn't here. I've knew that yesterday, and I knew that this morning, and I'll know that tonight. But why am I sad just this moment, Papa? I wasn't sad before."
+"I know Mama's not here. I've knew that yesterday, and I knew that this morning, and I'll know that tonight. But why am I sad just this moment, Papa? I wasn't sad before."
 
 "Before what?" He had resumed working on the pan, to occupy his hands. Something had burnt in place on the bottom, and wouldn't scrape off even though it had sat soaking throughout lunch.
 
@@ -132,11 +132,15 @@ Penny slept soundly that night, weary from her long journey. When she awoke the 
 
 "Marvelous, you've awoken just in time. Now let us see about your song." And with that she offered Penny a slice of the gingerbread. It was fluffy and filling at once, and the warm blend of spices was fragrant and familiar. Penny closed her eyes as she chewed, detecting, as she did so, the slightest note of something peppery.
 
-It was just as she opened her eyes, and was about to ask about the song, that she saw the old sorceress hang her head. Wiping her hands on her apron, the woman turned away to tidy the kitchen. And Penny understood, somehow, that she had failed in some vital but unspecified task.
+It was just as she opened her eyes, and was about to ask about the song, that she saw the old sorceress hang her head. Wiping her hands on her apron, the woman turned away to tidy the kitchen.
+
+"Ma'am," Penny asked, though she knew somehow what the answer would be - "can you help me remember the words to my song?"
+
+The sorceress paused in her work, a towel resting in her hand. "You may call me auntie, dear. And as for the song, there is nothing I can do: only the gingerbread can help you recall what you've lost."
 
 The next day was the same, and the next after that, and so on for quite some time: Penny awoke each morning to the smell of gingerbread, ate a slice, but could not remember the words to her song. The peppery note in the sorceress's gingerbread never went away - some days it was stronger, and some days weaker, but always it was there, hiding in the center of the slice.
 
-And so it went, until one day Penny awoke earlier than usual, and there was no gingerbread smell in the house. In the kitchen, the girl found the old sorceress preparing the morning's bread. "Auntie" she pleaded, for the two were now good friends, "may I help with the baking?"
+And so it went, until one day Penny awoke earlier than usual, and there was no gingerbread smell in the house. In the kitchen, the girl found the old sorceress preparing the morning's bread. "Auntie" she pleaded, "may I help with the baking?"
 
 The sorceress looked up from her work, as though she had been expecting Penny all morning. "But of course my dear - you may blend the spices." And she nodded her head toward the jars of spices huddled in one corner of the counter. A dove had settled on the ledge of the kitchen window, overseeing the operation from its perch. Carefully Penny measured out the cinnamon, nutmeg, allspice, and cardamom, until she found only one jar left. It was a curious little jar, made of black glass, marked with nothing but a piece of tape. The dove tilted its head in curiosity. Penny understood that she must add the contents of that jar - but what was inside? She dared not taste it, though she did not know why.
 
@@ -156,13 +160,15 @@ With the table still covered in flour, he finally gave in to his curiosity. "And
 
 "And the sorceress? Where did she go, and why didn't she help Penny?"
 
-"But Papa, don't you see? Penny had become the sorceress. She was the one making the gingerbread. A new kind of gingerbread." Holly stuck her finger in to the bowl of mulberry pie filling, and helped herself to a generous, sticky taste. "That was how the sorceress helped Penny."
+"But Papa, don't you see? Penny had become the sorceress. She was the one making the gingerbread. A new kind of gingerbread, one that was better than climbing trees." Holly stuck her finger in to the bowl of mulberry pie filling, and helped herself to a generous, sticky taste. "That was how the sorceress helped Penny."
 
-"Hmmm." Jonah picked up the dough that Holly had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Holly, and they both began spooning the filling into the pie.
+"Hmmm." Jonah picked up the dough that Holly had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Holly, and they both began spooning the filling into the pie. "So then, Penny never climbed another tree?"
+
+Holly shrugged.
 
 ***
 
-The pie was nearly done. Jonah still sat at the kitchen table, staring out the window. Beside him, Holly clutched a glass of milk, swinging her feet back and forth.
+The pie was baking in the oven; soon it would be finished. Jonah still sat at the kitchen table, staring out the window. Beside him, Holly clutched a glass of milk, swinging her feet back and forth.
 
 "It's a sad thing when you know the song, but you can't do the thing the song is telling you to do. Isn't it, Poppet?"
 
@@ -170,7 +176,7 @@ The pie was nearly done. Jonah still sat at the kitchen table, staring out the w
 
 "Even though Penny never climbed another tree - do you suppose she did other things?"
 
-Penny placed her chin in her hand, studying the afternoon sun reflected on the table top as though it might help her explain something very simple. "Papa, Penny did many, many other things. She knew all of those songs, remember? And she must have learned more, as she grew older."
+Holly rested her chin in her hand, studying the afternoon sun reflected on the table top as though it might help her explain something very simple. "Papa, Penny did many, many other things. She read books, she skipped rope, I suppose she must have fed the birds outside the kitchen window. She knew all of those songs, remember? And she must have learned more, as she grew older."
 
 Jonah smiled thinly, wrapped his knuckles on the table once. "Did I ever tell you about the first dance at our wedding?"
 
@@ -198,18 +204,18 @@ Jonah caught a swinging foot under the table, and gave a little squeeze. "Someth
 
 Jonah sat on the edge of the bed, Holly lying on her pillow in pajamas. She had remembered, thank goodness, to take her shoes off before climbing in.
 
-"I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Penny's climbing song?"
+"I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Penny's tree-climbing song?"
 
 "Perhaps. Or maybe it was just another song, with the same tune."
 
-Jonah stood up and paced for a bit, watching his daughter from the mirror above her dresser. He tried to remember what it was they had listened to on the radio, attempted to whistle it. "Like that? Was that Holly's tune, Poppet?"
+Jonah stood up and paced for a bit, watching his daughter from the mirror above her dresser. He tried to remember what it was they had listened to on the radio, attempted to whistle it. A thin, reedy thing, its pitch rising gradually and then falling even more slowly. "Like that? Was that Holly's tune, Poppet?"
 
 Holly smiled, her eyelids heavy. "Yes, I think that must have been it, Papa. Only - don't call me Poppet, please."
 
 Jonah winced, but Holly hadn't seen it; her eyes were already closed. "Why not?" he asked, slowly enunciating the sounds.
 
-"Well, I'm not really your puppet, am I?" She had turned over, closed her eyes and buried her face in her pillow. "I'm just your Holly, you see."
+"Well, I'm not really your puppet, am I?" She had turned over, buried her face in her pillow. "I'm just your Holly, you see."
 
-He walked to the door, hesitated for a moment for a moment. Finally he sighed and stepped out.
+He walked to the door, hesitated for a moment. Finally he sighed and stepped out.
 
 "Very well, Holly. Sweet dreams."
