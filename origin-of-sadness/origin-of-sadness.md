@@ -40,7 +40,7 @@ He turned the question over in his head as he placed the seed into the little de
 
 "Well - maybe we should turn it into a story. Like Mama says."
 
-That was Sylvie's favorite game with Holly, to make up silly stories all day long, whether it was about someone feeding ducks at the park or the nice man at the post office. Easy enough for Sylvie to do, Henry thought - that was what she did all day, every day. And she had certainly trained Holly to follow in her footsteps.
+That was Sylvia's favorite game with Holly, to make up silly stories all day long, whether it was about someone feeding ducks at the park or the nice man at the post office.
 
 "Well then, I'll do my best." Henry set his spade down on the ground, and sat back on his haunches. How did every good story begin? "Once upon a time, there was a good, wise king, who ruled over a vast kingdom..."
 
@@ -57,14 +57,6 @@ Holly took a breath and then sat down on the ground. "The story starts like this
 "Well, there's more to the story, of course. We haven't even reached the middle yet!" Holly's arms extended behind her, fists pressing into the ground for support. She had crushed the packet of seeds into a ball.
 
 "Very well, then, Poppet. Let's pick up the gardening things, and continue the story after we put them away. Ok?"
-
-***
-
-Sylvie had been a storyteller for as long as Henry could remember. When they first met, two strangers taking shelter at a bus stop from a sudden torrential downpour, she had regaled him with a long, drawn-out recounting of her miserable, awful day. Sylvie's mother had been in the hospital so she had gone to visit her; but she had parked illegally and returned to find her car towed; then she discovered she had lost her glasses; and by the time she had finally found them, and made her way to the tow yard, it had already closed. Henry felt such pity for her that he had lent her his umbrella. He had only learned that the whole story was a complete fabrication weeks later, when she finally returned it.
-
-Back then Sylvie was just starting her career in the publishing industry. After a couple of years in the marketing department at a small but well-regarded publishing house, she was making a name for herself. Not long after they had started dating she sought, and won, a big promotion. A year after they were married, Sylvie had taken a fancy job at a much larger publisher, with a dozen different imprints and thousands of new books each year.
-
-Then Holly was born, and everything changed.
 
 ***
 
@@ -120,14 +112,6 @@ Holly shrugged. She had just about finished putting the last few leaves into the
 
 ***
 
-Sylvie had gone back to work when Holly was six months old. Those had been hectic, but wonderful days, and somehow they had made it work, with Henry coming home early to take Holly from the nanny and Sylvie taking care of Holly in the early mornings. Their daughter was a bright, curious thing, who babbled from her crib non-stop and loved anything that was shiny or crinkly.
-
-For a while it seemed as though everything was perfect, despite all the work of raising a newborn. Sylvie was doing well at her job - her books were selling well and it seemed as though she could turn almost any manuscript into a best-seller by sheer force of will. There was talk of another promotion, a still-better job with still-longer hours.
-
-It was just after Holly's second birthday, a little before Easter, that Sylvie decided she wanted something different altogether. One night she came home, just after Henry had put Holly to bed. "I want to make films," she had said, simple as that, the glossy catalog for the art school that offered night classes poking out of her purse.
-
-***
-
 They had finished rolling out the dough and Holly still had not mentioned the ending to her story. Henry had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
 
 With the table still covered in flour, he finally gave in to his curiosity. "And so, Poppet? What happened when Stephie finally found the sorceress? Did she get her magic potion?"
@@ -149,14 +133,6 @@ With the table still covered in flour, he finally gave in to his curiosity. "And
 Henry sighed, grabbed a chair from the table, and sat down heavily. He looked down at the linoleum floo, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Holly's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink. "Maybe she could go back to the sorceress, and ask her for some help?"
 
 Holly licked at a bit of jam on her thumb. "She tried that, of course. But she couldn't find the way any more. She would go in to the forest, certain she remembered, and just wind up walking in circles. One time she thought maybe she had found the right path - but there was no trace of the sorceress's house, when she got to the clearing. She never found it again, and she never climbed another tree."
-
-***
-
-The years in film school were difficult enough, with Sylvie often too tired to take care of Holly in the mornings, or returning too late for bedtime. But it was Sylvie's decision to quit her job and to try to produce her own films that finally caused Henry to snap, a blistering fusillade of questions after Holly's bed time.
-
-What, he asked her, would they do without her salary? He did not make nearly enough by himself to support the three of them - and it would be many years before she would be earning any kind of money, let alone enough to replace the generous salary she had been earning as a marketing executive.
-
-It was not a gentle argument, nor a short one. For years they bickered over finances, doing their best to hide the bitter fights from Holly, and often failing. Sylvie made one film, and then another and another - and lost money on each one. Henry had looked up one divorce lawyer after another. There was even a lonesome afternoon when he had punched a phone number into his phone; it was the buzz of the waching machine, announcing the end of the spin cycle, which had pulled him away.
 
 ***
 
@@ -191,16 +167,6 @@ Holly shook her head mid-sip, dribbling a bit of milk down her chin.
 The oven timer went off, an insistent beep. "Dessert?" Holly asked.
 
 Henry caught a swinging foot under the table, and gave a little squeeze. "Something much, much better than that, Poppet."
-
-***
-
-This film would be Sylvie's fifth, and the riskiest project yet. It was something rather ambitious, a high-tech thriller with filming locations all over the country. Yesterday she had left town to wrap up the last week of shooting; when she returned, she would begin the laborious editing process, and with any luck the movie would be released next year.
-
-It seemed like ages ago, when Henry had discovered the script for the film. There on the shelf in the laundry room, he had found a stack of typed pages rolled into a tube, held together by a rubber band. Sylvie had taken Holly on an errand run, and wouldn't be back for several hours. He had unrolled the thick bundle and started to read. Some pages were heavily scarred with red ink, others with just a couple of inscrutable underlines and question marks. A scene towards the end of the screenplay had caught his eye, a few lines of dialogue circled three or four times over. In the margin, a cartoon drawing of a girl with buggy eyes and a slightly upturned nose that could only be his daughter.
-
-That night, after putting Holly to bed, he had opened a bottle of wine, presented a half-full glass to Sylvie with one hand, and the rolled up manuscript with the other.
-
-Sylvie, it turned out, had sketched out a tremendous plan for this film - extravagant sets, innovative scenes, a handful of big-name stars. It had been Henry who encouraged her to seek investors from her old contacts in publishing. That was a short couple of years ago; now, Sylvie's sketch was nearly complete.
 
 ***
 
