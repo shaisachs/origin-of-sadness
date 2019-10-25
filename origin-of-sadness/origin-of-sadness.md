@@ -122,6 +122,30 @@ Jonah waited another moment, but his daughter appeared lost in thought.
 
 ***
 
+By the time Penny found the sorceress's house, it was alrighty quite cold and dark. The owls had started hooting and the frogs had started croaking. Creatures snuffled underfoot, in and out of the bushes. Penny was relieved to find the sorceress's house cheerfully awake, a fire still blazing through the window.
+
+As cold and as dark as it was, Penny wasted no time in asking the sorceress for help with her song. But the sorceress replied:
+
+"Ah no, my dear, it is too late tonight - rest up, and we will see about that tomorrow."
+
+Penny slept soundly that night, weary from her long journey. When she awoke the house smelled of something sweet and spicy, light but a little bit tart. In the kitchen, the sorceress had just pulled a loaf of gingerbread out of the oven.
+
+"Marvelous, you've awoken just in time. Now let us see about your song." And with that she offered Penny a slice of the gingerbread. It was fluffy and filling at once, and the warm blend of spices was fragrant and familiar. Penny closed her eyes as she chewed, detecting, as she did so, the slightest note of something peppery.
+
+It was just as she opened her eyes, and was about to ask about the song, that she saw the old sorceress hang her head. Wiping her hands on her apron, the woman turned away to tidy the kitchen. And Penny understood, somehow, that she had failed in some vital but unspecified task.
+
+The next day was the same, and the next after that, and so on for quite some time: Penny awoke each morning to the smell of gingerbread, ate a slice, but could not remember the words to her song. The peppery note in the sorceress's gingerbread never went away - some days it was stronger, and some days weaker, but always it was there, hiding in the center of the slice.
+
+And so it went, until one day Penny awoke earlier than usual, and there was no gingerbread smell in the house. In the kitchen, the girl found the old sorceress preparing the morning's bread. "Aunty," she pleaded, for the two were now good friends, "may I help with the baking?"
+
+The sorceress looked up from her work, as though she had been expecting Penny all morning. "But of course my dear - you may blend the spices." And she nodded her head toward the jars of spices huddled in one corner of the counter. A dove had settled on the ledge of the kitchen window, overseeing the operation from its perch. Carefully Penny measured out the cinnamon, nutmeg, allspice, and cardamom, until she found only one jar left. It was a curious little jar, made of black glass, marked with nothing but a piece of tape. The dove tilted its head in curiosity. Penny understood that she must add the contents of that jar - but what was inside? She dared not taste it, though she did not know why.
+
+When she was done, the gingerbread tasted especially peppery - but there was another taste, beneath the pepper one, that Penny could not quite describe. It was something earthy, and rough - it reminded Penny of the bark of a tree. "Yes, my pet, a wonderful job with the spices today," the sorceress replied, as they tidied the kitchen that day. "It won't be long now."
+
+From that day on Penny continued to blend the spices, and each day the earthy taste in the gingerbread grew stronger, more present, more alive. In all this time, Penny still had not remembered the words to her song, and the sorceress had given her no hints, or tricks, or spells, or potions, to remember. Instead, the sorceress repeated the same thing, day after day: "It won't be long now."
+
+One day, when Penny awoke, the sorceress was gone.
+
 ***
 
 They had finished rolling out the dough and Holly still had not mentioned the ending to her story. Jonah had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
