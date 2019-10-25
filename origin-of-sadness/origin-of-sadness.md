@@ -1,28 +1,28 @@
 # The Origin of Sadness
 
-"Papa," Sophie asked, "why am I sad?"
+"Papa," Holly asked, "why am I sad?"
 
-Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Sophie was born. From the folk duet on the radio, the guitar picked out a shaky complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
+Henry's hands went on scrubbing the pan for a moment. Outside the kitchen window, a bluebird hopped from one branch to the other of the mulberry bush he had planted, just a week before Holly was born. From the folk duet on the radio, the guitar picked out a shaky complaint. The bluebird seemed to turn its head in thoughtful consideration, and then flew off.
 
 "Why, Poppet - it must be because Mama isn't home. Don't worry - she'll be home next Friday. Now, could you bring me your plate, please?"
 
-Sophie did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
+Holly did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
 
 "I know Mama isn't home. She's been gone for a whole day now. And I'm not worried - every time she leaves she returns. But why am I sad just this moment, Papa? I wasn't sad before."
 
 "Before what?" He had resumed working on the pan. A bit of cheese had been burnt in place on the bottom, and wouldn't scrape off even though it had sat soaking throughout lunch.
 
-Sophie set down the crayon and carefully considered her drawing. She blew softly on the paper, scattering the crayon shavings, before picking up the forest green to finish the tufts of grass at the bunny's feet. "Before you turned on the radio, I suppose. Why should that make me sad?"
+Holly set down the crayon and carefully considered her drawing. She blew softly on the paper, scattering the crayon shavings, before picking up the forest green to finish the tufts of grass at the bunny's feet. "Before you turned on the radio, I suppose. Why should that make me sad?"
 
 Henry gave the pan a final rinse, studied his reflection in the stainless steel, as though the answer to his daughter's question might reside there.
 
-"Are you saying that the song made you sad, is that it?" Henry plucked Sophie's plate from off the table, taking care not to drop the fork on her drawing.
+"Are you saying that the song made you sad, is that it?" Henry plucked Holly's plate from off the table, taking care not to drop the fork on her drawing.
 
-Sophie regarded him for a moment, then exhaled a little puff of air. "Of course, that is exactly what I'm saying."
+Holly regarded him for a moment, then exhaled a little puff of air. "Of course, that is exactly what I'm saying."
 
 "Why then, it's a sad song. And it reminds you that Mama is gone. And that makes you sad." He gave the plate a swipe, set it in the dishwasher, and turned towards her, leaning on the countertap and wiping his hands with a towel. Even before he finished saying it, Henry knew that this answer would not satisfy her.
 
-"Papa, what a perfectly silly thing to say." Sophie brushed her hand against the paper, in the process rubbing the few remaining bits of waxy crayon into smudges on the drawing, and then fixed her drawing to the refrigerator. "It's a sad song, of course it makes me sad. But why is it a sad song? It's just some instruments on the radio, a few sounds. How does that have anything to do with Mama? No one on the radio knows that she's gone, or even who she is. Why should that make me sad?"
+"Papa, what a perfectly silly thing to say." Holly brushed her hand against the paper, in the process rubbing the few remaining bits of waxy crayon into smudges on the drawing, and then fixed her drawing to the refrigerator. "It's a sad song, of course it makes me sad. But why is it a sad song? It's just some instruments on the radio, a few sounds. How does that have anything to do with Mama? No one on the radio knows that she's gone, or even who she is. Why should that make me sad?"
 
 ***
 
@@ -30,7 +30,7 @@ The ground was still a little damp from rain earlier in the week; the planting p
 
 "I'm ready for another seed, Poppet."
 
-Sophie dug around in the little foil pouch, brightly painted with a pair of carrots, carefully pinched a tiny seed between thumb and forefinger, and dropped them into her father's waiting hand.
+Holly dug around in the little foil pouch, brightly painted with a pair of carrots, carefully pinched a tiny seed between thumb and forefinger, and dropped them into her father's waiting hand.
 
 "Have you figured it out yet, Papa?"
 
@@ -40,13 +40,13 @@ He turned the question over in his head as he placed the seed into the little de
 
 "Well - maybe we should turn it into a story. Like Mama says."
 
-That was Sylvie's favorite game with Sophie, to make up silly stories all day long, whether it was about someone feeding ducks at the park or the nice man at the post office. Easy enough for Sylvie to do, Henry thought - that was what she did all day, every day. And she had certainly trained Sophie to follow in her footsteps.
+That was Sylvie's favorite game with Holly, to make up silly stories all day long, whether it was about someone feeding ducks at the park or the nice man at the post office. Easy enough for Sylvie to do, Henry thought - that was what she did all day, every day. And she had certainly trained Holly to follow in her footsteps.
 
 "Well then, I'll do my best." Henry set his spade down on the ground, and sat back on his haunches. How did every good story begin? "Once upon a time, there was a good, wise king, who ruled over a vast kingdom..."
 
-"Oh, Papa, you're telling it wrong!" Sophie stretched her feet upwards, standing on her toes for a moment, and it was only then that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or, they had been yesterday - with a streak of purple on both sides. The heels were made of tiny red lights that flashed whenever Sophie took a step.
+"Oh, Papa, you're telling it wrong!" Holly stretched her feet upwards, standing on her toes for a moment, and it was only then that Henry realized she had worn her new sneakers for the afternoon's chores. They had purchased them together, just yesterday after school. The sneakers were a gleaming color of white - or, they had been yesterday - with a streak of purple on both sides. The heels were made of tiny red lights that flashed whenever Holly took a step.
 
-Sophie took a breath and then sat down on the ground. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
+Holly took a breath and then sat down on the ground. "The story starts like this: 'Once upon a time, there was a little girl named... Stephie. Stephie loved to sing, all day and all night. She sang at the playground, she sang in the bath, she even sang at school! She sang while she was doing her homework, or playing with her friends, she sang while she was riding her bike.'"
 
 "Sounds like Stephie must have had a real talent." Henry stole a surreptitious glance at her sneakers, wondering how difficult it would be to wipe off the smudge of dirt on the side of the left shoe. Miraculously, that seemed to be the only stain on the new pair of sneakers.
 
@@ -54,7 +54,7 @@ Sophie took a breath and then sat down on the ground. "The story starts like thi
 
 "Well, that is a lovely story. Did Stephie invent the very first sad song, is that it?" Henry gathered all the little rocks they had unearthed from the garden into a little pile, and left it by the side of the garden.
 
-"Well, there's more to the story, of course. We haven't even reached the middle yet!" Sophie's arms extended behind her, fists pressing into the ground for support. She had crushed the packet of seeds into a ball.
+"Well, there's more to the story, of course. We haven't even reached the middle yet!" Holly's arms extended behind her, fists pressing into the ground for support. She had crushed the packet of seeds into a ball.
 
 "Very well, then, Poppet. Let's pick up the gardening things, and continue the story after we put them away. Ok?"
 
@@ -64,13 +64,13 @@ Sylvie had been a storyteller for as long as Henry could remember. When they fir
 
 Back then Sylvie was just starting her career in the publishing industry. After a couple of years in the marketing department at a small but well-regarded publishing house, she was making a name for herself. Not long after they had started dating she sought, and won, a big promotion. A year after they were married, Sylvie had taken a fancy job at a much larger publisher, with a dozen different imprints and thousands of new books each year.
 
-Then Sophie was born, and everything changed.
+Then Holly was born, and everything changed.
 
 ***
 
 At the edge of the yard stood a line of oak trees, stout old things that had been there since they had bought the house, and probably many years before that. Any day now, the leaves would turn a lazy shade of yellow. But already a few strays were starting to flutter off the branches, one or two or three at a time.
 
-Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Sophie grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little.
+Raking in the shade felt good after sweating under the pounding sun in the garden. Even at this stage, before the leaves had started to fall in earnest, there were already plenty on the ground. Henry gathered them together into a pile while Holly grabbed fists full of leaves, twigs and acorns, and stuffed them into a large brown paper bag. Henry had forgotten to remind her to change into a shabbier pair of sneakers for the yard work, and so the new ones were soon marked up with little grass stains. While she worked she hummed a little.
 
 "Are you singing one of Stephie's songs, Poppet?"
 
@@ -78,7 +78,7 @@ Stephie buried her hands in the vast pile of leaves, crunching them through her 
 
 "You mean the lyrics? I didn't even realize that there were any. I thought it was just a simple tune." Henry paused for a minute and leaned against the rake, dabbing at his forehead with the back of his hat.
 
-Sophie dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "Well, maybe you and I don't know the words, but I'm sure that Stephie would have. She knew the words to every song."
+Holly dropped the leaves she had gathered into the bag, wiping her hands against her jeans and frowning. "Well, maybe you and I don't know the words, but I'm sure that Stephie would have. She knew the words to every song."
 
 "Wow. That's a lot of songs!"
 
@@ -86,11 +86,11 @@ Sophie dropped the leaves she had gathered into the bag, wiping her hands agains
 
 "When you explain it like that, it makes perfect sense. So was this her song for picking up leaves?"
 
-Sophie picked up a single dried leaf, twirled it by the stem. "Hmm. Yes, it must have been! But now I wonder why it is that we no longer know the words."
+Holly picked up a single dried leaf, twirled it by the stem. "Hmm. Yes, it must have been! But now I wonder why it is that we no longer know the words."
 
 "Maybe Stephie forgot them." Henry had gone back to raking, pulling together one last pile from the leaves on the far side of the yard.
 
-Sophie wandered up to one of the oaks at the side of the yard, touched her fingertips to its cobbled bark. She looked down to the roots, and then up to the highest branches.
+Holly wandered up to one of the oaks at the side of the yard, touched her fingertips to its cobbled bark. She looked down to the roots, and then up to the highest branches.
 
 "I think there was another song that she forgot, first. You see, one day while Stephie was climbing a tree, she found that she couldn't remember the words to the song she was singing."
 
@@ -98,9 +98,9 @@ Sophie wandered up to one of the oaks at the side of the yard, touched her finge
 
 "What a strange idea. How would Stephie be able to climb a tree while singing a song that was meant for something else, like chopping vegetables?"
 
-"I hadn't really thought of that, I suppose." Henry went back to raking, and Sophie picked up another little pile of leaves to drop in the bag. "Well then: how did Stephie get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
+"I hadn't really thought of that, I suppose." Henry went back to raking, and Holly picked up another little pile of leaves to drop in the bag. "Well then: how did Stephie get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
 
-Sophie rubbed her nose with the back of her hand a little, and began collecting leaves from the last little pile. "She couldn't, of course. Stephie didn't know how to climb without singing. And she couldn't sing the song if she didn't know the words. Fortunately she hadn't climbed very far, so she simply jumped out of the tree."
+Holly rubbed her nose with the back of her hand a little, and began collecting leaves from the last little pile. "She couldn't, of course. Stephie didn't know how to climb without singing. And she couldn't sing the song if she didn't know the words. Fortunately she hadn't climbed very far, so she simply jumped out of the tree."
 
 "Well, I'm glad she got out of the tree."
 
@@ -116,51 +116,51 @@ Sophie rubbed her nose with the back of her hand a little, and began collecting 
 
 "What a good idea. She sounds like quite a clever little girl."
 
-Sophie shrugged. She had just about finished putting the last few leaves into the paper bag, and at the bottom of the pile she had found an acorn, a perfectly formed little nut, and had decided to try to prise off the cap with her fingernail.
+Holly shrugged. She had just about finished putting the last few leaves into the paper bag, and at the bottom of the pile she had found an acorn, a perfectly formed little nut, and had decided to try to prise off the cap with her fingernail.
 
 ***
 
-Sylvie had gone back to work when Sophie was six months old. Those had been hectic, but wonderful days, and somehow they had made it work, with Henry coming home early to take Sophie from the nanny and Sylvie taking care of Sophie in the early mornings. Their daughter was a bright, curious thing, who babbled from her crib non-stop and loved anything that was shiny or crinkly.
+Sylvie had gone back to work when Holly was six months old. Those had been hectic, but wonderful days, and somehow they had made it work, with Henry coming home early to take Holly from the nanny and Sylvie taking care of Holly in the early mornings. Their daughter was a bright, curious thing, who babbled from her crib non-stop and loved anything that was shiny or crinkly.
 
 For a while it seemed as though everything was perfect, despite all the work of raising a newborn. Sylvie was doing well at her job - her books were selling well and it seemed as though she could turn almost any manuscript into a best-seller by sheer force of will. There was talk of another promotion, a still-better job with still-longer hours.
 
-It was just after Sophie's second birthday, a little before Easter, that Sylvie decided she wanted something different altogether. One night she came home, just after Henry had put Sophie to bed. "I want to make films," she had said, simple as that, the glossy catalog for the art school that offered night classes poking out of her purse.
+It was just after Holly's second birthday, a little before Easter, that Sylvie decided she wanted something different altogether. One night she came home, just after Henry had put Holly to bed. "I want to make films," she had said, simple as that, the glossy catalog for the art school that offered night classes poking out of her purse.
 
 ***
 
-They had finished rolling out the dough and Sophie still had not mentioned the ending to her story. Henry had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
+They had finished rolling out the dough and Holly still had not mentioned the ending to her story. Henry had done his best to be patient, letting her think about it while they mashed up the berries, and waited for them to boil, and added sugar and syrup so that it would thicken.
 
 With the table still covered in flour, he finally gave in to his curiosity. "And so, Poppet? What happened when Stephie finally found the sorceress? Did she get her magic potion?"
 
-"Oh, no, Papa," Sophie responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have a potion for Stephie. In fact she didn't have any potions at all!"
+"Oh, no, Papa," Holly responded, chewing her lip as she carefully pushed the rolling pin over the dough one more time. "The sorceress didn't have a potion for Stephie. In fact she didn't have any potions at all!"
 
 "What sort of sorceress doesn't have a magic potion?"
 
 "Well, this sorceress must have been too busy helping little girls with their problems to bother brewing up potions."
 
-"I see." Henry picked up the dough that Sophie had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Sophie, and they both began spooning the sticky mulberry jam into the pie. "So then - what did Stephie do? Was the sorceress able to help her at all?"
+"I see." Henry picked up the dough that Holly had rolled out, and carefully set it in the pie tin. He grabbed two spoons, handing one to Holly, and they both began spooning the sticky mulberry jam into the pie. "So then - what did Stephie do? Was the sorceress able to help her at all?"
 
-"Well, the sorceress told Sophie that there was an enchanted pond at the edge of the forest. She told Stephie that she would be able to remember the words, if she went to the pond. So, Stephie went to the pond, and she sat down at the edge. At first the waters were very muddy, but after a few minutes they cleared up. And in the water of the pond she could see herself climbing a tree!"
+"Well, the sorceress told Holly that there was an enchanted pond at the edge of the forest. She told Stephie that she would be able to remember the words, if she went to the pond. So, Stephie went to the pond, and she sat down at the edge. At first the waters were very muddy, but after a few minutes they cleared up. And in the water of the pond she could see herself climbing a tree!"
 
 "How marvelous!" Henry felt the door of the oven, to check that it was warm enough for the pie. "So once she saw herself in the water - Stephie was able to remember the lyrics, after all?" He carefully set the pie in the oven, and removed his oven mitts.
 
 "Yes. Stephie saw herself climbing and remembered the lyrics, just as they had been before. But then the waters grew cloudy again. And she found that while she still knew the words to the song, she couldn't remember how to climb a tree."
 
-Henry sighed, grabbed a chair from the table, and sat down heavily. He looked down at the linoleum floo, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Sophie's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink. "Maybe she could go back to the sorceress, and ask her for some help?"
+Henry sighed, grabbed a chair from the table, and sat down heavily. He looked down at the linoleum floo, the checkerboard black-and-white pattern fading from years of stains and scuff marks. A single crushed mulberry hung on to the toe of Holly's right shoe, amidst a dusting of white specs of flour. The lights in the heel didn't blink. "Maybe she could go back to the sorceress, and ask her for some help?"
 
-Sophie licked at a bit of jam on her thumb. "She tried that, of course. But she couldn't find the way any more. She would go in to the forest, certain she remembered, and just wind up walking in circles. One time she thought maybe she had found the right path - but there was no trace of the sorceress's house, when she got to the clearing. She never found it again, and she never climbed another tree."
+Holly licked at a bit of jam on her thumb. "She tried that, of course. But she couldn't find the way any more. She would go in to the forest, certain she remembered, and just wind up walking in circles. One time she thought maybe she had found the right path - but there was no trace of the sorceress's house, when she got to the clearing. She never found it again, and she never climbed another tree."
 
 ***
 
-The years in film school were difficult enough, with Sylvie often too tired to take care of Sophie in the mornings, or returning too late for bedtime. But it was Sylvie's decision to quit her job and to try to produce her own films that finally caused Henry to snap, a blistering fusillade of questions after Sophie's bed time.
+The years in film school were difficult enough, with Sylvie often too tired to take care of Holly in the mornings, or returning too late for bedtime. But it was Sylvie's decision to quit her job and to try to produce her own films that finally caused Henry to snap, a blistering fusillade of questions after Holly's bed time.
 
 What, he asked her, would they do without her salary? He did not make nearly enough by himself to support the three of them - and it would be many years before she would be earning any kind of money, let alone enough to replace the generous salary she had been earning as a marketing executive.
 
-It was not a gentle argument, nor a short one. For years they bickered over finances, doing their best to hide the bitter fights from Sophie, and often failing. Sylvie made one film, and then another and another - and lost money on each one. Henry had looked up one divorce lawyer after another. There was even a lonesome afternoon when he had punched a phone number into his phone; it was the buzz of the waching machine, announcing the end of the spin cycle, which had pulled him away.
+It was not a gentle argument, nor a short one. For years they bickered over finances, doing their best to hide the bitter fights from Holly, and often failing. Sylvie made one film, and then another and another - and lost money on each one. Henry had looked up one divorce lawyer after another. There was even a lonesome afternoon when he had punched a phone number into his phone; it was the buzz of the waching machine, announcing the end of the spin cycle, which had pulled him away.
 
 ***
 
-The pie was nearly done. Henry still sat at the kitchen table, staring out the window. Beside him, Sophie clutched a glass of milk, swinging her feet back and forth.
+The pie was nearly done. Henry still sat at the kitchen table, staring out the window. Beside him, Holly clutched a glass of milk, swinging her feet back and forth.
 
 "It's a sad thing when you know the song, but you can't do the thing the song is telling you to do. Isn't it, Poppet?"
 
@@ -172,7 +172,7 @@ Stephie placed her chin in her hand, studying the afternoon sun reflected on the
 
 Henry smiled thinly, wrapped his knuckles on the table once. "Did I ever tell you about the first dance at our wedding?"
 
-Sophie shook her head mid-sip, dribbling a bit of milk down her chin.
+Holly shook her head mid-sip, dribbling a bit of milk down her chin.
 
 "It was a beautiful old French love song, with trumpets and violins and probably some cymbals. It went a little like this: ba-dum, ba-dum, ya da da-da..." Henry wiggled his fingers a bit in the air, his hands flying about like butterflies.
 
@@ -180,15 +180,15 @@ Sophie shook her head mid-sip, dribbling a bit of milk down her chin.
 
 "Oh you wouldn't believe it, she was the best dancer. Mama could dance any song she chose. Even if she'd never heard it before, she'd start by tapping her feet and nodding her head. Before you knew it she had taken over the dance floor."
 
-"And you never danced again, after the wedding?" Sophie's eyes were wide, the glass of milk held steady by her hands in her lap.
+"And you never danced again, after the wedding?" Holly's eyes were wide, the glass of milk held steady by her hands in her lap.
 
 "Well, yes we did, but it was never the same, was it? After all, how many weddings did Mama and I have?" Henry tapped an index finger on his upper lip, as though in serious thought.
 
-"Only one, silly!" Sophie giggled and commenced kicking her feet under the table.
+"Only one, silly!" Holly giggled and commenced kicking her feet under the table.
 
 "Ah that's right, we only had one wedding. And only one first dance at the wedding. But after that we had something even better than a wedding, didn't we?"
 
-The oven timer went off, an insistent beep. "Dessert?" Sophie asked.
+The oven timer went off, an insistent beep. "Dessert?" Holly asked.
 
 Henry caught a swinging foot under the table, and gave a little squeeze. "Something much, much better than that, Poppet."
 
@@ -196,28 +196,28 @@ Henry caught a swinging foot under the table, and gave a little squeeze. "Someth
 
 This film would be Sylvie's fifth, and the riskiest project yet. It was something rather ambitious, a high-tech thriller with filming locations all over the country. Yesterday she had left town to wrap up the last week of shooting; when she returned, she would begin the laborious editing process, and with any luck the movie would be released next year.
 
-It seemed like ages ago, when Henry had discovered the script for the film. There on the shelf in the laundry room, he had found a stack of typed pages rolled into a tube, held together by a rubber band. Sylvie had taken Sophie on an errand run, and wouldn't be back for several hours. He had unrolled the thick bundle and started to read. Some pages were heavily scarred with red ink, others with just a couple of inscrutable underlines and question marks. A scene towards the end of the screenplay had caught his eye, a few lines of dialogue circled three or four times over. In the margin, a cartoon drawing of a girl with buggy eyes and a slightly upturned nose that could only be his daughter.
+It seemed like ages ago, when Henry had discovered the script for the film. There on the shelf in the laundry room, he had found a stack of typed pages rolled into a tube, held together by a rubber band. Sylvie had taken Holly on an errand run, and wouldn't be back for several hours. He had unrolled the thick bundle and started to read. Some pages were heavily scarred with red ink, others with just a couple of inscrutable underlines and question marks. A scene towards the end of the screenplay had caught his eye, a few lines of dialogue circled three or four times over. In the margin, a cartoon drawing of a girl with buggy eyes and a slightly upturned nose that could only be his daughter.
 
-That night, after putting Sophie to bed, he had opened a bottle of wine, presented a half-full glass to Sylvie with one hand, and the rolled up manuscript with the other.
+That night, after putting Holly to bed, he had opened a bottle of wine, presented a half-full glass to Sylvie with one hand, and the rolled up manuscript with the other.
 
 Sylvie, it turned out, had sketched out a tremendous plan for this film - extravagant sets, innovative scenes, a handful of big-name stars. It had been Henry who encouraged her to seek investors from her old contacts in publishing. That was a short couple of years ago; now, Sylvie's sketch was nearly complete.
 
 ***
 
-Henry sat on the edge of the bed, Sophie lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in. There they lay in the corner, underneath the director's chair with her name monogrammed in big, swoopy letters on the back.
+Henry sat on the edge of the bed, Holly lying on her pillow in Beatrix Potter pajamas. She had remembered, thank goodness, to take her shoes off befor climbing in. There they lay in the corner, underneath the director's chair with her name monogrammed in big, swoopy letters on the back.
 
 "I was thinking of something just now, Poppet. Do you suppose that the song you heard on the radio was Stephie's climbing song?"
 
 "Perhaps. Or maybe it was just another song, with the same tune."
 
-Henry stood up and paced for a bit, watching his daughter from the mirror above her dresser. He tried to remember what it was they had listened to on the radio, attempted to whistle it. "Like that? Was that Sophie's tune, Poppet?"
+Henry stood up and paced for a bit, watching his daughter from the mirror above her dresser. He tried to remember what it was they had listened to on the radio, attempted to whistle it. "Like that? Was that Holly's tune, Poppet?"
 
-Sophie smiled, her eyelids heavy. "Yes, I think that must have been it, Papa. Only - don't call me Poppet, please."
+Holly smiled, her eyelids heavy. "Yes, I think that must have been it, Papa. Only - don't call me Poppet, please."
 
-Henry winced, but Sophie hadn't seen it; her eyes were already closed. "Why not?" he asked, slowly enunciating the sounds.
+Henry winced, but Holly hadn't seen it; her eyes were already closed. "Why not?" he asked, slowly enunciating the sounds.
 
-"Well, I'm not really your puppet, am I?" She had turned over, facing the lamp on her bedside table, and pulled the chain to turn it off. "I'm just your Sophie, you see."
+"Well, I'm not really your puppet, am I?" She had turned over, facing the lamp on her bedside table, and pulled the chain to turn it off. "I'm just your Holly, you see."
 
 He walked to the door, hesitated for a moment for a moment. Finally he sighed and stepped out.
 
-"Very well, Sophie. Sweet dreams."
+"Very well, Holly. Sweet dreams."
