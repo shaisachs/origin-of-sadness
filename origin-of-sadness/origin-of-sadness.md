@@ -8,7 +8,7 @@ Jonah's hands went on scrubbing the pan for a moment. Outside the kitchen window
 
 Olive did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
 
-"I know Mama's not here. I've knew that yesterday, and I knew that this morning, and I'll know that tonight. But why am I sad just this moment, Papa? I wasn't sad before."
+"I know Mama's not here. I knew that yesterday, and I knew that this morning, and I'll know that tonight. But why am I sad just this moment, Papa? I wasn't sad before."
 
 "Before what?" He had resumed working on the pan, to occupy his hands. Something had burnt in place on the bottom, and wouldn't scrape off even though it had sat soaking throughout lunch.
 
@@ -20,9 +20,9 @@ Jonah gave the pan a final rinse, studied his reflection in the silverish metal,
 
 Olive regarded him for a moment, then exhaled a little puff of air. "Of course, that is exactly what I'm saying."
 
-"Why then, it's a sad song. And it reminds you that Mama is gone. And that makes you sad." He gave the plate a swipe, set it in the dishwasher, and turned towards her, leaning on the countertap and wiping his hands with a towel. Even before he finished saying it, Jonah knew that this answer would not satisfy her.
+"Why then, it's a sad song. And it reminds you that Mama is away. And that makes you sad." He gave the plate a swipe, set it in the dishwasher, and turned towards her, leaning on the countertap and wiping his hands with a towel. Even before he finished saying it, Jonah knew that this answer would not satisfy her.
 
-"Papa, what a perfectly silly thing to say." Olive brushed her hand against the paper, in the process rubbing the few remaining bits of waxy crayon into smudges on the drawing, and then fixed her drawing to the refrigerator. "It's a sad song, of course it makes me sad. But why is it a sad song? It's just some instruments on the radio, a few sounds. How does that have anything to do with Mama? No one on the radio knows that she's gone, or even who she is. Why should that make me sad?"
+"Papa, what a perfectly silly thing to say." Olive brushed her hand against the paper, in the process rubbing the few remaining bits of waxy crayon into smudges on the drawing, and then fixed her drawing to the refrigerator. "It's a sad song, of course it makes me sad. But why is it a sad song? It's just some instruments on the radio, a few sounds. How does that have anything to do with Mama? No one on the radio knows that she's not home, or even who she is. Why should that make me sad?"
 
 ***
 
