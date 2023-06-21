@@ -106,7 +106,7 @@ Olive rubbed her nose with the back of her hand a little, and began collecting l
 
 "Well, yes. But she had her song for walking through the woods. And as she hiked through the forest, Penny sang and sang, which made the journey go quickly. She even stopped every now and then to leave some breadcrumbs on the trail, so that she'd know how to get back home."
 
-"What a good idea. She sounds like quite a clever little girl."
+"What a good idea. She sounds like quite a clever little girl." Jonah reached over and ruffled Olive's hair.
 
 Olive shrugged. She had just about finished putting the last few leaves into the paper bag, and at the bottom of the pile she had found an acorn, a perfectly formed little nut, and had decided to try to prise off the cap with her fingernail.
 
@@ -122,7 +122,7 @@ Jonah waited another moment, but his daughter appeared lost in thought.
 
 ***
 
-By the time Penny found the sorceress's house, it was alrighty quite cold and dark. The owls had started hooting and the frogs had started croaking. Creatures snuffled underfoot, in and out of the bushes. Penny was relieved to find the sorceress's house cheerfully awake, a fire still blazing through the window.
+By the time Penny found the sorceress's house, it was already quite cold and dark. The owls had started hooting and the frogs had started croaking. Creatures snuffled underfoot, in and out of the bushes. Penny was relieved to find the sorceress's house cheerfully awake, a fire still blazing through the window.
 
 As cold and as dark as it was, Penny wasted no time in asking the sorceress for help with her song. But the sorceress replied:
 
@@ -190,7 +190,7 @@ Olive shook her head mid-sip, dribbling a bit of milk down her chin.
 
 "And you never danced again, after the wedding?" Olive's eyes were wide, the glass of milk held steady by her hands in her lap.
 
-"Well, yes we did, but it was never the same, was it? After all, how many weddings did Mama and I have?" Jonah tapped an index finger on his upper lip, as though in serious thought.
+"Well, yes we did, but it was never the same, was it? After all, how many weddings did Mama and I have?" Jonah tapped his upper lip as though in serious thought.
 
 "Only one, silly!" Olive giggled and commenced kicking her feet under the table.
 
@@ -208,7 +208,7 @@ Jonah sat on the edge of the bed, Olive lying on her pillow in pajamas. She had 
 
 "Perhaps. Or maybe it was just another song, with the same tune."
 
-Jonah stood up and paced for a bit, watching his daughter from the mirror above her dresser. He tried to remember what it was they had listened to on the radio, attempted to whistle it. A thin, reedy thing, its pitch rising gradually and then falling even more slowly. "Like that? Was that Olive's tune, Poppet?"
+Jonah stood up and paced for a bit, watching his daughter from the mirror above her dresser. He tried to remember what it was they had listened to on the radio, attempted to whistle it. A thin, reedy thing, its pitch rising gradually and then falling even more slowly. "Like that? Was that Penny's tune, Poppet?"
 
 Olive smiled, her eyelids heavy. "Yes, I think that must have been it, Papa. Only - don't call me Poppet, please."
 
