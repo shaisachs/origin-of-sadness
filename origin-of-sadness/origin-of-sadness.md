@@ -6,7 +6,7 @@ Jonah's hands went on scrubbing the pan for a moment. Outside the kitchen window
 
 "Why, Poppet - is it because of Mama?"
 
-Olive did not looking up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
+Olive did not look up from her coloring. Before her, a line drawing of a bunny lay on the kitchen table, a pile of crayons strewn in every direction. Her right hand pinched the tip of a brown crayon, earnestly pressing into the paper so that she could finish coloring the bunny's ear.
 
 "I know Mama's not here. I knew that yesterday, and I knew that this morning, and I'll know that tonight. But why am I sad just this moment, Papa? I wasn't sad before."
 
@@ -90,7 +90,7 @@ Olive wandered up to one of the oaks at the side of the yard, touched her finger
 
 "What a strange idea. How would Penny be able to climb a tree while singing a song that was meant for something else, like chopping vegetables?"
 
-"I hadn't really thought of that, I suppose." Jonah went back to raking, and Olive picked up another little pile of leaves to drop in the bag. "Well then: how did Penny get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
+"I hadn't really thought of that, I suppose." Jonah went back to raking, and Olive picked up another little pile of leaves to drop in the bag. "Well then, how did Penny get out of the tree? Was she able to continue climbing, if she couldn't remember the words to the song?"
 
 Olive rubbed her nose with the back of her hand a little, and began collecting leaves from the last little pile. "She couldn't, of course. Penny didn't know how to climb without singing. And she couldn't sing the song if she didn't know the words. Fortunately she hadn't climbed very far, so she simply jumped out of the tree."
 
